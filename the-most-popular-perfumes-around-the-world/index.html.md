@@ -42,15 +42,15 @@ BTW – my favorite perfume is Paris by Yves St. Laurent.
 
 ## Related Posts
 
-- [dollarama perfume](https://perfumes.allwomenstalk.com/smell-good-without-breaking-the-bank-with-dollar-store-perfumes/)
-- [which lasts longer perfume or eau de parfum](https://perfumes.allwomenstalk.com/brilliant-ways-to-make-your-perfume-last-longer-in-summer/)
-- [fragrance love types](https://perfumes.allwomenstalk.com/signs-you-love-perfume/)
-- [best black orchid clone](https://allwomenstalk.com/best-perfume-clones-2022/)
-- [what perfume do guys like](https://perfumes.allwomenstalk.com/the-perfume-scents-that-turn-men-off/)
 - [decoded perfumes](https://fashion.allwomenstalk.com/decoding-fragrance-families-and-notes/)
+- [best black orchid clone](https://allwomenstalk.com/best-perfume-clones-2022/)
+- [dollarama perfume](https://perfumes.allwomenstalk.com/smell-good-without-breaking-the-bank-with-dollar-store-perfumes/)
 - [diy body mist](https://perfumes.allwomenstalk.com/diy-vanilla-body-mist/)
-- [solid cologne recipe](https://perfumes.allwomenstalk.com/ingredient-diy-solid-perfume/)
 - [raspberry perfume](https://perfumes.allwomenstalk.com/diy-wild-raspberry-rose-infusion-perfume/)
+- [solid cologne recipe](https://perfumes.allwomenstalk.com/ingredient-diy-solid-perfume/)
+- [what perfume do guys like](https://perfumes.allwomenstalk.com/the-perfume-scents-that-turn-men-off/)
+- [fragrance love types](https://perfumes.allwomenstalk.com/signs-you-love-perfume/)
+- [which lasts longer perfume or eau de parfum](https://perfumes.allwomenstalk.com/brilliant-ways-to-make-your-perfume-last-longer-in-summer/)
 - [aquavir](https://perfumes.allwomenstalk.com/perfect-everyday-perfumes-you-will-love/)
 - [10 Popular Scents in Perfumes and Colognes ...](https://perfumes.allwomenstalk.com/popular-scents-in-perfumes-and-colognes/)
 - [10 Best and Fabulously Enchanting Scents Ever ...](https://perfumes.allwomenstalk.com/best-and-fabulously-enchanting-scents-ever/)

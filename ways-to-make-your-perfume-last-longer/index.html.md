@@ -60,16 +60,16 @@ This article was written in collaboration with editor Lydia Sheehan.
 
 ## Related Posts
 
-- [what does amber smell like](https://perfumes.allwomenstalk.com/delicious-awesome-perfumes-that-smell-like-coconut/)
 - [difference between a mist and perfume](https://perfumes.allwomenstalk.com/differences-between-body-mist-perfume/)
-- [perfume that smells like candy](https://perfumes.allwomenstalk.com/fruity-fabulous-perfumes-to-try/)
 - [best sensual perfumes](https://perfumes.allwomenstalk.com/beautiful-sensual-perfumes-for-women/)
-- [designer deodorant](https://skincare.allwomenstalk.com/luxury-deodorants-to-consider/)
-- [famous perfume recipes](https://perfumes.allwomenstalk.com/perfume-recipes-to-follow/)
 - [best leather colognes](https://perfumes.allwomenstalk.com/colognes-to-get-your-man/)
-- [scented bottle](https://perfumes.allwomenstalk.com/awesome-perfumes-with-cool-bottles/)
 - [floral fragrance](https://perfumes.allwomenstalk.com/fantastic-floral-fragrances-for-summer/)
 - [ralph lauren woman perfume discontinued](https://perfumes.allwomenstalk.com/discontinued-perfumes-i-wish-theyd-bring-back/)
+- [what does amber smell like](https://perfumes.allwomenstalk.com/delicious-awesome-perfumes-that-smell-like-coconut/)
+- [scented bottle](https://perfumes.allwomenstalk.com/awesome-perfumes-with-cool-bottles/)
+- [designer deodorant](https://skincare.allwomenstalk.com/luxury-deodorants-to-consider/)
+- [perfume that smells like candy](https://perfumes.allwomenstalk.com/fruity-fabulous-perfumes-to-try/)
+- [famous perfume recipes](https://perfumes.allwomenstalk.com/perfume-recipes-to-follow/)
 - [7 Tips to Make Your Perfume Stay Fresh ...](https://perfumes.allwomenstalk.com/tips-to-make-your-perfume-stay-fresh/)
 - [8 Tips on How to Wear Perfume ...](https://perfumes.allwomenstalk.com/tips-on-how-to-wear-perfume/)
 
