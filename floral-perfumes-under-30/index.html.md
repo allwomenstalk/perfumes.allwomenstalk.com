@@ -3,7 +3,7 @@ title: "4 Yummy Perfumes with a Floral Scent You Will Love for under 30 ..."
 description: "Absolute Parfum; Rare Pearls; Avon Femme Eau De Parfum; Haiku Kyoto Flower Eau De Parfum; More ..."
 url: "https://perfumes.allwomenstalk.com/floral-perfumes-under-30/"
 category: "perfumes"
-last_updated: "2026-05-21"
+last_updated: "2026-05-22"
 ---
 
 # 4 Yummy Perfumes with a Floral Scent You Will Love for under 30 ...
@@ -48,15 +48,15 @@ Bottom Notes: Soft cotton musk
 
 ## Related Posts
 
-- [diy body mist](https://perfumes.allwomenstalk.com/diy-vanilla-body-mist/)
-- [raspberry perfume](https://perfumes.allwomenstalk.com/diy-wild-raspberry-rose-infusion-perfume/)
-- [fragrance love types](https://perfumes.allwomenstalk.com/signs-you-love-perfume/)
-- [what perfume do guys like](https://perfumes.allwomenstalk.com/the-perfume-scents-that-turn-men-off/)
 - [glossier you perfume amazon](https://perfumes.allwomenstalk.com/gender-neutral-fragrances-youll-both-love/)
-- [jo malone orange bitters](https://perfumes.allwomenstalk.com/did-you-know-that-perfume-can-age-you/)
-- [which lasts longer perfume or eau de parfum](https://perfumes.allwomenstalk.com/brilliant-ways-to-make-your-perfume-last-longer-in-summer/)
-- [best selling fragrances in the world](https://perfumes.allwomenstalk.com/the-most-popular-perfumes-around-the-world/)
+- [fragrance love types](https://perfumes.allwomenstalk.com/signs-you-love-perfume/)
 - [solid cologne recipe](https://perfumes.allwomenstalk.com/ingredient-diy-solid-perfume/)
+- [what perfume do guys like](https://perfumes.allwomenstalk.com/the-perfume-scents-that-turn-men-off/)
+- [best selling fragrances in the world](https://perfumes.allwomenstalk.com/the-most-popular-perfumes-around-the-world/)
+- [diy body mist](https://perfumes.allwomenstalk.com/diy-vanilla-body-mist/)
+- [which lasts longer perfume or eau de parfum](https://perfumes.allwomenstalk.com/brilliant-ways-to-make-your-perfume-last-longer-in-summer/)
+- [jo malone orange bitters](https://perfumes.allwomenstalk.com/did-you-know-that-perfume-can-age-you/)
+- [raspberry perfume](https://perfumes.allwomenstalk.com/diy-wild-raspberry-rose-infusion-perfume/)
 - [xxl size girls](https://beauty.allwomenstalk.com/ways-for-plus-size-girls-to-stop-body-odor/)
 - [8 Fresh Summer Fragrances ...](https://perfumes.allwomenstalk.com/8-fresh-summer-fragrances/)
 - [7 Deliciously Warm Floral Perfumes That Are Just P...](https://perfumes.allwomenstalk.com/deliciously-warm-floral-perfumes-that-are-just-perfect-for-winter/)
