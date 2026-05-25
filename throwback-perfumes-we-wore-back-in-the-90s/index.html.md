@@ -3,7 +3,7 @@ title: "17 Throwback Perfumes We Wore Back in the 90s ..."
 description: "GAP Dream & Heaven; Elizabeth Arden Sunflowers; The Body Shop White Musk; Tommy Girl; Vanilla Fields; More ..."
 url: "https://perfumes.allwomenstalk.com/throwback-perfumes-we-wore-back-in-the-90s/"
 category: "perfumes"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # 17 Throwback Perfumes We Wore Back in the 90s ...
@@ -48,7 +48,7 @@ This is what you wore when you wanted to feel oh so grown up and sophisticated. 
 
 ## 7. Bath & Body Works Country Apple
 
-![Bath & Body Works Country Apple](https://img.allw.mn/content/p8/g5/m83igfoo571e867ebb6cd820822739_580x580.jpg)
+![Bath & Body Works Country Apple](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/p8/g5/m83igfoo571e867ebb6cd820822739_580x580.jpg)
 
 Oh, god, Country Apple smelled so delicious. I mean, it kind of made a better air freshener than a perfume, but still.
 
@@ -66,7 +66,7 @@ Tell me this didn't smell like youth in a bottle.
 
 ## 11. The SPICE GIRLS IMPULSE BODY SPRAY
 
-![The SPICE GIRLS IMPULSE BODY SPRAY](https://img.allw.mn/content/jt/l3/l145hzyy571e86c70d6de601906847_500x500.jpg)
+![The SPICE GIRLS IMPULSE BODY SPRAY](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/jt/l3/l145hzyy571e86c70d6de601906847_500x500.jpg)
 
 Everyone was mad for this, but I thought it smelled terrible. Still, Spice Girls!
 
@@ -92,7 +92,7 @@ This is the one perfume that I still adore – it's so bright and fresh!
 
 ## 17. CANDIE'S for HER
 
-![CANDIE'S for HER](https://img.allw.mn/content/g2/sq/grjkglay571e8685d6892058868148_600x545.jpg)
+![CANDIE'S for HER](https://resize.allw.mn/1028x0/filters:format(webp)/filters:quality(70)/content/g2/sq/grjkglay571e8685d6892058868148_600x545.jpg)
 
 Candie's was the shit in the '90s and early 2000s. Not only were the perfumes and colognes delicious, but the shoes, man, the shoes!
 
@@ -100,16 +100,16 @@ So, did you wear any of these? Miss any of them?
 
 ## Related Posts
 
+- [bon bons malizia milk shake](https://perfumes.allwomenstalk.com/juicy-perfumes-for-women-with-a-sweet-tooth/)
+- [portable fragrance bottle](https://perfumes.allwomenstalk.com/brilliant-ways-to-reuse-your-old-perfume-bottles/)
+- [how to smell nice all day](https://beauty.allwomenstalk.com/how-to-smell-super-fresh-when-its-hot-outside/)
 - [autumn drive perfume](https://perfumes.allwomenstalk.com/match-your-perfume-to-your-fave-fall-things/)
+- [perfumes zodiac sign](https://perfumes.allwomenstalk.com/a-signature-perfume-for-every-zodiac-sign-check-out-yours/)
+- [chlor perfume](https://perfumes.allwomenstalk.com/how-to-select-your-signature-fragrance/)
+- [top natural deodorant for womens](https://skincare.allwomenstalk.com/natural-deodorant-brands-for-women-reducing-their-exposure-to-chemicals/)
+- [best perfume for college girl](https://perfumes.allwomenstalk.com/how-to-shop-for-a-perfume-you-are-actually-gonna-love-and-use/)
 - [perfumes that smell like the beach](https://perfumes.allwomenstalk.com/perfumes-for-women-who-want-to-smell-like-summer/)
 - [real perfume vs fake](https://perfumes.allwomenstalk.com/real-or-faux-perfume-deciphering-hacks-to-tell-if-its-legit/)
-- [portable fragrance bottle](https://perfumes.allwomenstalk.com/brilliant-ways-to-reuse-your-old-perfume-bottles/)
-- [best perfume for college girl](https://perfumes.allwomenstalk.com/how-to-shop-for-a-perfume-you-are-actually-gonna-love-and-use/)
-- [how to smell nice all day](https://beauty.allwomenstalk.com/how-to-smell-super-fresh-when-its-hot-outside/)
-- [top natural deodorant for womens](https://skincare.allwomenstalk.com/natural-deodorant-brands-for-women-reducing-their-exposure-to-chemicals/)
-- [perfumes zodiac sign](https://perfumes.allwomenstalk.com/a-signature-perfume-for-every-zodiac-sign-check-out-yours/)
-- [bon bons malizia milk shake](https://perfumes.allwomenstalk.com/juicy-perfumes-for-women-with-a-sweet-tooth/)
-- [chlor perfume](https://perfumes.allwomenstalk.com/how-to-select-your-signature-fragrance/)
 - [7 Strange Perfume Scents ...](https://perfumes.allwomenstalk.com/strange-perfume-scents/)
 - [7 Summer Perfumes I Adore ...](https://perfumes.allwomenstalk.com/summer-perfumes-i-adore/)
 

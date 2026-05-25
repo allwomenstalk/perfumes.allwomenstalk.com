@@ -3,7 +3,7 @@ title: "The Perfume Scents That Turn Men off ..."
 description: "Food Sweetness; Strong Florals; Powder; Fruity; More ..."
 url: "https://perfumes.allwomenstalk.com/the-perfume-scents-that-turn-men-off/"
 category: "perfumes"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # The Perfume Scents That Turn Men off ...
@@ -37,15 +37,15 @@ Studies have been conducted to show that men tend to associate super fruity flav
 ## Related Posts
 
 - [solid cologne recipe](https://perfumes.allwomenstalk.com/ingredient-diy-solid-perfume/)
-- [Coach Fragrance Line amp LE Straw Basket with Good...](https://allwomenstalk.com/coach-fragrance-line-le-straw-basket-with-goodies/)
-- [raspberry perfume](https://perfumes.allwomenstalk.com/diy-wild-raspberry-rose-infusion-perfume/)
-- [best black orchid clone](https://allwomenstalk.com/best-perfume-clones-2022/)
-- [diy body mist](https://perfumes.allwomenstalk.com/diy-vanilla-body-mist/)
-- [dollarama perfume](https://perfumes.allwomenstalk.com/smell-good-without-breaking-the-bank-with-dollar-store-perfumes/)
-- [decoded perfumes](https://fashion.allwomenstalk.com/decoding-fragrance-families-and-notes/)
 - [aquavir](https://perfumes.allwomenstalk.com/perfect-everyday-perfumes-you-will-love/)
-- [Trying out the Coach Perfume](https://allwomenstalk.com/trying-out-the-coach-perfume/)
 - [sensual luxury perfume](https://allwomenstalk.com/luxury-perfumes-to-help-you-exude-sensuality/)
+- [best black orchid clone](https://allwomenstalk.com/best-perfume-clones-2022/)
+- [raspberry perfume](https://perfumes.allwomenstalk.com/diy-wild-raspberry-rose-infusion-perfume/)
+- [dollarama perfume](https://perfumes.allwomenstalk.com/smell-good-without-breaking-the-bank-with-dollar-store-perfumes/)
+- [Coach Fragrance Line amp LE Straw Basket with Good...](https://allwomenstalk.com/coach-fragrance-line-le-straw-basket-with-goodies/)
+- [decoded perfumes](https://fashion.allwomenstalk.com/decoding-fragrance-families-and-notes/)
+- [Trying out the Coach Perfume](https://allwomenstalk.com/trying-out-the-coach-perfume/)
+- [diy body mist](https://perfumes.allwomenstalk.com/diy-vanilla-body-mist/)
 - [7 Interesting Facts about Perfumes ...](https://perfumes.allwomenstalk.com/interesting-facts-about-perfumes/)
 - [Fragrance Tidbits ...](https://allwomenstalk.com/fragrance-tidbits-2/)
 

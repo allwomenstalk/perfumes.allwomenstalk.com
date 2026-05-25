@@ -3,7 +3,7 @@ title: "Cultgalas Scented Sculpture: More Than Just a Fragrance..."
 description: "Unearth Timeless Elegance with Byredo’s Gypsy Water; The Allure of Vanilla: Phlur’s Vanilla Skin; The Enigmatic Charm of Liis Bo; Whimsy Encapsulated: Sage’s Rose by Tsu Lange Yor; Cult Gaia’s Scented Sculpture Moment; More ..."
 url: "https://perfumes.allwomenstalk.com/fwrd-signature-scent-collection/"
 category: "perfumes"
-last_updated: "2026-05-22"
+last_updated: "2026-05-25"
 ---
 
 # Cultgalas Scented Sculpture: More Than Just a Fragrance...
