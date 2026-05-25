@@ -42,16 +42,16 @@ These are different ways you can layer fragrance. How do you layer your fragranc
 
 ## Related Posts
 
-- [how to make your room smell like starbucks](https://diy.allwomenstalk.com/diy-ways-to-fragrance-your-home/)
-- [balmy perfume](https://perfumes.allwomenstalk.com/perfumes-perfect-for-balmy-summer-days/)
-- [how to smell clean and fresh all day](https://beauty.allwomenstalk.com/ways-to-smell-fresh-all-day-long/)
-- [are perfume testers diluted](https://perfumes.allwomenstalk.com/scent-sational-uses-for-perfume-you-must-try-for-yourself/)
-- [chess perfume](https://perfumes.allwomenstalk.com/best-ever-tips-for-wearing-perfume/)
-- [how to choose deodorant](https://beauty.allwomenstalk.com/things-to-consider-when-buying-deodorant/)
 - [how to smell fresh down there](https://beauty.allwomenstalk.com/youll-love-these-tips-for-always-smelling-fresh-down-there/)
+- [are perfume testers diluted](https://perfumes.allwomenstalk.com/scent-sational-uses-for-perfume-you-must-try-for-yourself/)
 - [aftershave gift sets](https://perfumes.allwomenstalk.com/after-shave-gift-sets-to-make-your-men-smell-fab/)
-- [da bombs bath bombs](https://beauty.allwomenstalk.com/bath-bombs-that-are-da-bomb/)
 - [body mist spray](https://perfumes.allwomenstalk.com/tips-for-choosing-a-body-mist/)
+- [how to choose deodorant](https://beauty.allwomenstalk.com/things-to-consider-when-buying-deodorant/)
+- [how to smell clean and fresh all day](https://beauty.allwomenstalk.com/ways-to-smell-fresh-all-day-long/)
+- [chess perfume](https://perfumes.allwomenstalk.com/best-ever-tips-for-wearing-perfume/)
+- [balmy perfume](https://perfumes.allwomenstalk.com/perfumes-perfect-for-balmy-summer-days/)
+- [how to make your room smell like starbucks](https://diy.allwomenstalk.com/diy-ways-to-fragrance-your-home/)
+- [da bombs bath bombs](https://beauty.allwomenstalk.com/bath-bombs-that-are-da-bomb/)
 - [7 Ways to the Best Perfume for You ...](https://perfumes.allwomenstalk.com/ways-to-the-best-perfume-for-you/)
 - [Fragrance Tidbits ...](https://allwomenstalk.com/fragrance-tidbits-2/)
 

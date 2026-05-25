@@ -54,16 +54,16 @@ Which are your favorite scents? I ask in the plural because it’s likely you ha
 
 ## Related Posts
 
-- [Heres How to Better Your Mood with These Smells .....](https://health.allwomenstalk.com/heres-how-to-better-your-mood-with-these-smells/)
-- [what to do with unwanted perfume](https://perfumes.allwomenstalk.com/crafty-ways-to-reuse-your-old-perfume/)
-- [Woodland Fragrances to Buy before Falls End ...](https://perfumes.allwomenstalk.com/woodland-fragrances-to-buy-before-falls-end/)
-- [9 Scents Thatll Take You on a Trip through Perfume...](https://perfumes.allwomenstalk.com/scents-thatll-take-you-on-a-trip-through-perfume-history/)
-- [will perfume keep mosquitoes away](https://perfumes.allwomenstalk.com/the-delicious-fragrance-thatll-keep-mosquitos-away/)
-- [how to smell good while working out](https://running.allwomenstalk.com/heres-how-to-smell-fresh-after-a-run/)
+- [What do They do the ABCs of 19 Awesome Essential O...](https://health.allwomenstalk.com/what-do-they-do-the-abcs-of-awesome-essential-oils/)
 - [Essential Oils to Place on Your Nightstand ...](https://beauty.allwomenstalk.com/essential-oils-to-place-on-your-nightstand/)
 - [perfume ads video](https://perfumes.allwomenstalk.com/perfume-ads-thatll-make-you-want-to-spritz-on-a-scent/)
-- [What do They do the ABCs of 19 Awesome Essential O...](https://health.allwomenstalk.com/what-do-they-do-the-abcs-of-awesome-essential-oils/)
+- [Heres How to Better Your Mood with These Smells .....](https://health.allwomenstalk.com/heres-how-to-better-your-mood-with-these-smells/)
+- [what to do with unwanted perfume](https://perfumes.allwomenstalk.com/crafty-ways-to-reuse-your-old-perfume/)
+- [9 Scents Thatll Take You on a Trip through Perfume...](https://perfumes.allwomenstalk.com/scents-thatll-take-you-on-a-trip-through-perfume-history/)
 - [7 Holiday Candles to Keep Your House Smelling Fest...](https://perfumes.allwomenstalk.com/holiday-candles-to-keep-your-house-smelling-festive/)
+- [will perfume keep mosquitoes away](https://perfumes.allwomenstalk.com/the-delicious-fragrance-thatll-keep-mosquitos-away/)
+- [how to smell good while working out](https://running.allwomenstalk.com/heres-how-to-smell-fresh-after-a-run/)
+- [Woodland Fragrances to Buy before Falls End ...](https://perfumes.allwomenstalk.com/woodland-fragrances-to-buy-before-falls-end/)
 - [Fragrance Tidbits ...](https://allwomenstalk.com/fragrance-tidbits-2/)
 - [Personal Scent](https://allwomenstalk.com/personal-scent/)
 

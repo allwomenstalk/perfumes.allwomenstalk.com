@@ -68,16 +68,16 @@ So girls, these are just a few of my favorite innocent and sweet perfumes! What 
 
 ## Related Posts
 
-- [best lush perfume](https://perfumes.allwomenstalk.com/all-natural-lush-perfumes/)
-- [perfumes for mothers](https://perfumes.allwomenstalk.com/perfumes-for-your-mom-for-mothers-day/)
-- [ocean by giorgio armani](https://perfumes.allwomenstalk.com/water-inspired-perfumes-to-try/)
 - [loreal paris riche stylo infinite](https://beauty.allwomenstalk.com/new-perfumes-well-be-rocking-this-season/)
+- [ocean by giorgio armani](https://perfumes.allwomenstalk.com/water-inspired-perfumes-to-try/)
+- [perfume that looks like a can](https://perfumes.allwomenstalk.com/deliciously-sweet-perfumes-that-smell-like-candy/)
+- [punk perfume](https://perfumes.allwomenstalk.com/punk-rock-perfumes-to-try/)
 - [how to make your own perfume](https://perfumes.allwomenstalk.com/steps-to-making-your-own-perfume/)
 - [what perfume do guys like most](https://perfumes.allwomenstalk.com/top-perfumes-that-men-love/)
-- [punk perfume](https://perfumes.allwomenstalk.com/punk-rock-perfumes-to-try/)
-- [find a similar perfume](https://perfumes.allwomenstalk.com/awesome-perfumes-that-smell-like-soap/)
-- [perfume that looks like a can](https://perfumes.allwomenstalk.com/deliciously-sweet-perfumes-that-smell-like-candy/)
+- [perfumes for mothers](https://perfumes.allwomenstalk.com/perfumes-for-your-mom-for-mothers-day/)
 - [tiffany perfume discontinued](https://perfumes.allwomenstalk.com/splendid-perfumes-that-drive-men-crazy/)
+- [find a similar perfume](https://perfumes.allwomenstalk.com/awesome-perfumes-that-smell-like-soap/)
+- [best lush perfume](https://perfumes.allwomenstalk.com/all-natural-lush-perfumes/)
 - [7 Strange Perfume Scents ...](https://perfumes.allwomenstalk.com/strange-perfume-scents/)
 - [10 Great Perfumes ...](https://allwomenstalk.com/10-great-perfumes/)
 

@@ -30,16 +30,16 @@ I hope you like the video!
 
 ## Related Posts
 
-- [La Rose Aime La Menthe by Carriere Freres - a Must...](https://perfumes.allwomenstalk.com/carriere-freres-la-rose-aime-la-menthe-spring-home-scent/)
-- [4 Carrire Frres Scented Solid Body Soaps to Elevat...](https://beauty.allwomenstalk.com/carriere-freres-solid-soaps/)
-- [how to pick fragrance](https://perfumes.allwomenstalk.com/choosing-perfect-fragrance/)
-- [Perfume Tips to Make Your Scent Work Harder ...](https://perfumes.allwomenstalk.com/perfume-tips-to-make-your-scent-work-harder/)
-- [15 Facts about Diptyque - Luxury Fragrance Brand P...](https://perfumes.allwomenstalk.com/facts-about-diptyque-luxury-fragrance/)
 - [13 Intriguing Facts About Carriere Freres - The Fi...](https://perfumes.allwomenstalk.com/carriere-freres-facts-home-scented-wax/)
 - [10 Fabulous Unisex Perfumes on the Market ...](https://perfumes.allwomenstalk.com/fabulous-unisex-perfumes-on-the-market/)
+- [Perfume Tips to Make Your Scent Work Harder ...](https://perfumes.allwomenstalk.com/perfume-tips-to-make-your-scent-work-harder/)
+- [how to pick fragrance](https://perfumes.allwomenstalk.com/choosing-perfect-fragrance/)
 - [passion fruit daiquiri philosophy](https://skincare.allwomenstalk.com/yummy-smelling-bubble-baths/)
+- [15 Facts about Diptyque - Luxury Fragrance Brand P...](https://perfumes.allwomenstalk.com/facts-about-diptyque-luxury-fragrance/)
 - [15 Most Notorious French Perfume Houses to Dazzle ...](https://perfumes.allwomenstalk.com/notorious-french-perfume-houses/)
 - [essential oil companies](https://vityle.com/best-essential-oil-brands/)
+- [4 Carrire Frres Scented Solid Body Soaps to Elevat...](https://beauty.allwomenstalk.com/carriere-freres-solid-soaps/)
+- [La Rose Aime La Menthe by Carriere Freres - a Must...](https://perfumes.allwomenstalk.com/carriere-freres-la-rose-aime-la-menthe-spring-home-scent/)
 - [7 Ingredients for a Home Made Moisturiser ...](https://skincare.allwomenstalk.com/ingredients-for-a-home-made-moisturiser/)
 - [8 Steps to a DIY Hair Mask ...](https://hair.allwomenstalk.com/steps-to-a-diy-hair-mask/)
 

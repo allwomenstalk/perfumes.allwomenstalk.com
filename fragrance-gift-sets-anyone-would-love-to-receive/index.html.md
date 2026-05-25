@@ -223,14 +223,14 @@ Which fragrance gift sets are top of your list?
 
 ## Related Posts
 
-- [perfume for introverts](https://perfumes.allwomenstalk.com/perfumes-based-on-personality-types-that-make-great-gifts/)
-- [chess perfume](https://perfumes.allwomenstalk.com/best-ever-tips-for-wearing-perfume/)
-- [how to smell clean and fresh all day](https://beauty.allwomenstalk.com/ways-to-smell-fresh-all-day-long/)
-- [aftershave gift sets](https://perfumes.allwomenstalk.com/after-shave-gift-sets-to-make-your-men-smell-fab/)
 - [perfume layering with bath and body works](https://perfumes.allwomenstalk.com/ways-to-layer-your-fragrance/)
-- [how to choose deodorant](https://beauty.allwomenstalk.com/things-to-consider-when-buying-deodorant/)
-- [how to smell fresh down there](https://beauty.allwomenstalk.com/youll-love-these-tips-for-always-smelling-fresh-down-there/)
 - [are perfume testers diluted](https://perfumes.allwomenstalk.com/scent-sational-uses-for-perfume-you-must-try-for-yourself/)
+- [how to choose deodorant](https://beauty.allwomenstalk.com/things-to-consider-when-buying-deodorant/)
+- [aftershave gift sets](https://perfumes.allwomenstalk.com/after-shave-gift-sets-to-make-your-men-smell-fab/)
+- [chess perfume](https://perfumes.allwomenstalk.com/best-ever-tips-for-wearing-perfume/)
+- [how to smell fresh down there](https://beauty.allwomenstalk.com/youll-love-these-tips-for-always-smelling-fresh-down-there/)
+- [perfume for introverts](https://perfumes.allwomenstalk.com/perfumes-based-on-personality-types-that-make-great-gifts/)
+- [how to smell clean and fresh all day](https://beauty.allwomenstalk.com/ways-to-smell-fresh-all-day-long/)
 - [da bombs bath bombs](https://beauty.allwomenstalk.com/bath-bombs-that-are-da-bomb/)
 - [body mist spray](https://perfumes.allwomenstalk.com/tips-for-choosing-a-body-mist/)
 - [7 Great Burts Bees Gift Sets ...](https://skincare.allwomenstalk.com/great-burts-bees-gift-sets/)

@@ -116,16 +116,16 @@ What was your favorite fragrance for summer? Have you found your new go-to for t
 
 ## Related Posts
 
-- [best perfume spots](https://perfumes.allwomenstalk.com/the-best-places-to-apply-perfume/)
-- [bath and body works fall scents](https://lifestyle.allwomenstalk.com/products-with-the-best-fall-scents/)
-- [glossier you perfume amazon](https://perfumes.allwomenstalk.com/gender-neutral-fragrances-youll-both-love/)
-- [bed bath and beyond scents](https://beauty.allwomenstalk.com/the-best-scents-at-bath-and-body-works/)
-- [favourite fragrance](https://perfumes.allwomenstalk.com/what-your-favorite-fragrance-says-about-you/)
-- [jo malone orange bitters](https://perfumes.allwomenstalk.com/did-you-know-that-perfume-can-age-you/)
-- [how to select long lasting perfume](https://perfumes.allwomenstalk.com/how-to-shop-for-a-long-lasting-perfume/)
 - [best perfume with fresh scent](https://perfumes.allwomenstalk.com/best-perfumes-with-a-fresh-scent/)
-- [warm and spicy womens perfume](https://perfumes.allwomenstalk.com/warm-and-spicy-perfumes/)
+- [favourite fragrance](https://perfumes.allwomenstalk.com/what-your-favorite-fragrance-says-about-you/)
+- [how to select long lasting perfume](https://perfumes.allwomenstalk.com/how-to-shop-for-a-long-lasting-perfume/)
+- [best perfume spots](https://perfumes.allwomenstalk.com/the-best-places-to-apply-perfume/)
+- [bed bath and beyond scents](https://beauty.allwomenstalk.com/the-best-scents-at-bath-and-body-works/)
 - [perfumes under 30](https://perfumes.allwomenstalk.com/floral-perfumes-under-30/)
+- [warm and spicy womens perfume](https://perfumes.allwomenstalk.com/warm-and-spicy-perfumes/)
+- [glossier you perfume amazon](https://perfumes.allwomenstalk.com/gender-neutral-fragrances-youll-both-love/)
+- [bath and body works fall scents](https://lifestyle.allwomenstalk.com/products-with-the-best-fall-scents/)
+- [jo malone orange bitters](https://perfumes.allwomenstalk.com/did-you-know-that-perfume-can-age-you/)
 - [7 Scents for Summer to Try ...](https://perfumes.allwomenstalk.com/scents-for-summer/)
 - [7 Ways to the Best Perfume for You ...](https://perfumes.allwomenstalk.com/ways-to-the-best-perfume-for-you/)
 

@@ -148,16 +148,16 @@ Which one do you want to spritz on today? What others would you add to the list?
 
 ## Related Posts
 
-- [candles that make your house smell good](https://lifestyle.allwomenstalk.com/candle-scent-combos-thatll-make-your-house-smell-delicious/)
-- [best perfume for workplace](https://perfumes.allwomenstalk.com/low-key-fragrances-that-are-fit-for-the-office/)
-- [preppy perfumes](https://perfumes.allwomenstalk.com/throwback-perfumes-we-wore-back-in-the-90s/)
-- [john varvatos colognes](https://perfumes.allwomenstalk.com/talk-your-bf-into-wearing-these-sweet-springtime-colognes/)
-- [hanae mori butterfly eau de toilette](https://perfumes.allwomenstalk.com/classic-spring-scents-that-beat-all-the-new-stuff/)
-- [light scented womens perfume](https://perfumes.allwomenstalk.com/spring-clean-your-fragrance-collection-with-these-light-and-airy-scents/)
 - [purfume chart](https://perfumes.allwomenstalk.com/this-chart-will-tell-you-which-perfume-fits-your-personality/)
-- [rose scented perfume](https://perfumes.allwomenstalk.com/life-is-a-rose-garden-with-these-scents/)
-- [how to pronounce cologne](https://perfumes.allwomenstalk.com/guys-say-they-love-these-herbaceous-colognes/)
+- [light scented womens perfume](https://perfumes.allwomenstalk.com/spring-clean-your-fragrance-collection-with-these-light-and-airy-scents/)
+- [preppy perfumes](https://perfumes.allwomenstalk.com/throwback-perfumes-we-wore-back-in-the-90s/)
+- [hanae mori butterfly eau de toilette](https://perfumes.allwomenstalk.com/classic-spring-scents-that-beat-all-the-new-stuff/)
+- [best perfume for workplace](https://perfumes.allwomenstalk.com/low-key-fragrances-that-are-fit-for-the-office/)
 - [viktor and rolf flowerbomb rollerball](https://perfumes.allwomenstalk.com/rollerballs-of-your-all-time-favorite-spring-scents/)
+- [john varvatos colognes](https://perfumes.allwomenstalk.com/talk-your-bf-into-wearing-these-sweet-springtime-colognes/)
+- [how to pronounce cologne](https://perfumes.allwomenstalk.com/guys-say-they-love-these-herbaceous-colognes/)
+- [rose scented perfume](https://perfumes.allwomenstalk.com/life-is-a-rose-garden-with-these-scents/)
+- [candles that make your house smell good](https://lifestyle.allwomenstalk.com/candle-scent-combos-thatll-make-your-house-smell-delicious/)
 - [Valentines Gifts for Everyone Find the Perfect New...](https://allwomenstalk.com/valentines-gifts-for-everyone-find-the-perfect-new-perfume/)
 - [Feminine Ways to Wear Pink Any Day You Want to ...](https://beauty.allwomenstalk.com/feminine-ways-to-wear-pink-any-day-you-want-to/)
 
