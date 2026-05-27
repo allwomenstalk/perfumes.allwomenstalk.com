@@ -3,7 +3,7 @@ title: "17 Throwback Perfumes We Wore Back in the 90s ..."
 description: "GAP Dream & Heaven; Elizabeth Arden Sunflowers; The Body Shop White Musk; Tommy Girl; Vanilla Fields; More ..."
 url: "https://perfumes.allwomenstalk.com/throwback-perfumes-we-wore-back-in-the-90s/"
 category: "perfumes"
-last_updated: "2026-05-25"
+last_updated: "2026-05-27"
 ---
 
 # 17 Throwback Perfumes We Wore Back in the 90s ...
@@ -100,16 +100,16 @@ So, did you wear any of these? Miss any of them?
 
 ## Related Posts
 
-- [perfumes zodiac sign](https://perfumes.allwomenstalk.com/a-signature-perfume-for-every-zodiac-sign-check-out-yours/)
 - [best perfume for college girl](https://perfumes.allwomenstalk.com/how-to-shop-for-a-perfume-you-are-actually-gonna-love-and-use/)
-- [bon bons malizia milk shake](https://perfumes.allwomenstalk.com/juicy-perfumes-for-women-with-a-sweet-tooth/)
-- [real perfume vs fake](https://perfumes.allwomenstalk.com/real-or-faux-perfume-deciphering-hacks-to-tell-if-its-legit/)
 - [chlor perfume](https://perfumes.allwomenstalk.com/how-to-select-your-signature-fragrance/)
 - [top natural deodorant for womens](https://skincare.allwomenstalk.com/natural-deodorant-brands-for-women-reducing-their-exposure-to-chemicals/)
+- [bon bons malizia milk shake](https://perfumes.allwomenstalk.com/juicy-perfumes-for-women-with-a-sweet-tooth/)
 - [portable fragrance bottle](https://perfumes.allwomenstalk.com/brilliant-ways-to-reuse-your-old-perfume-bottles/)
 - [perfumes that smell like the beach](https://perfumes.allwomenstalk.com/perfumes-for-women-who-want-to-smell-like-summer/)
 - [how to smell nice all day](https://beauty.allwomenstalk.com/how-to-smell-super-fresh-when-its-hot-outside/)
+- [perfumes zodiac sign](https://perfumes.allwomenstalk.com/a-signature-perfume-for-every-zodiac-sign-check-out-yours/)
 - [autumn drive perfume](https://perfumes.allwomenstalk.com/match-your-perfume-to-your-fave-fall-things/)
+- [real perfume vs fake](https://perfumes.allwomenstalk.com/real-or-faux-perfume-deciphering-hacks-to-tell-if-its-legit/)
 - [7 Strange Perfume Scents ...](https://perfumes.allwomenstalk.com/strange-perfume-scents/)
 - [7 Summer Perfumes I Adore ...](https://perfumes.allwomenstalk.com/summer-perfumes-i-adore/)
 
