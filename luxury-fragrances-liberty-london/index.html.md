@@ -3,7 +3,7 @@ title: "The Story Behind Liberty London’s LBTY Fragrance Collection That You N
 description: "The Art of Scent: Crafted with Passion; A Symphony of Scents: More than Just a Candle; Elevating Your Space: Perfect Gifts for Spring; More ..."
 url: "https://perfumes.allwomenstalk.com/luxury-fragrances-liberty-london/"
 category: "perfumes"
-last_updated: "2026-05-27"
+last_updated: "2026-05-29"
 ---
 
 # The Story Behind Liberty London’s LBTY Fragrance Collection That You Need to Hear
