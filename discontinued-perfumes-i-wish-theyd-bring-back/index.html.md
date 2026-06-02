@@ -3,7 +3,7 @@ title: "7 Discontinued Perfumes I Wish Theyd Bring Back ..."
 description: "Ralph Hot by Ralph Lauren; Deseo by Jennifer Lopez; Tendre Poison by Dior; Allure Sensuelle by Chanel; Wild Honeysuckle by Bath & Body Works; More ..."
 url: "https://perfumes.allwomenstalk.com/discontinued-perfumes-i-wish-theyd-bring-back/"
 category: "perfumes"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 7 Discontinued Perfumes I Wish Theyd Bring Back ...
@@ -56,14 +56,14 @@ So, these are just a few of the perfumes that I still mourn to this day! Do you 
 
 ## Related Posts
 
-- [where to buy perfumes cheap](https://perfumes.allwomenstalk.com/fabulous-ways-to-save-money-on-perfume-to-keep-your-piggy-bank-full/)
-- [famous perfume recipes](https://perfumes.allwomenstalk.com/perfume-recipes-to-follow/)
-- [perfume that smells like candy](https://perfumes.allwomenstalk.com/fruity-fabulous-perfumes-to-try/)
 - [scented bottle](https://perfumes.allwomenstalk.com/awesome-perfumes-with-cool-bottles/)
-- [what does amber smell like](https://perfumes.allwomenstalk.com/delicious-awesome-perfumes-that-smell-like-coconut/)
-- [best fragrance for house](https://lifestyle.allwomenstalk.com/top-home-fragrances-thatll-transform-your-house/)
+- [famous perfume recipes](https://perfumes.allwomenstalk.com/perfume-recipes-to-follow/)
 - [perfumes for mature ladies](https://perfumes.allwomenstalk.com/fab-mature-scents-for-our-fab-mature-readers-to-try/)
 - [celebrity perfumes](https://perfumes.allwomenstalk.com/irresistible-celebrity-perfumes/)
+- [perfume that smells like candy](https://perfumes.allwomenstalk.com/fruity-fabulous-perfumes-to-try/)
+- [best fragrance for house](https://lifestyle.allwomenstalk.com/top-home-fragrances-thatll-transform-your-house/)
+- [what does amber smell like](https://perfumes.allwomenstalk.com/delicious-awesome-perfumes-that-smell-like-coconut/)
+- [where to buy perfumes cheap](https://perfumes.allwomenstalk.com/fabulous-ways-to-save-money-on-perfume-to-keep-your-piggy-bank-full/)
 - [designer deodorant](https://skincare.allwomenstalk.com/luxury-deodorants-to-consider/)
 - [is rose an aphrodisiac](https://love.allwomenstalk.com/gorgeous-flowers-that-you-didnt-know-were-aphrodisiacs/)
 - [7 Strange Perfume Scents ...](https://perfumes.allwomenstalk.com/strange-perfume-scents/)

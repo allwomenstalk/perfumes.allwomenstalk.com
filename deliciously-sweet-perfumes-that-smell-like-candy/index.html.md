@@ -3,7 +3,7 @@ title: "11 Deliciously Sweet Perfumes That Smell like Candy ..."
 description: "Flowerbomb by Viktor & Rolf; Pink Sugar by Aqualina; Pour Femme by Dolce & Gabbana; Secret Wish by Anna Sui; Fantasy by Britney Spears; More ..."
 url: "https://perfumes.allwomenstalk.com/deliciously-sweet-perfumes-that-smell-like-candy/"
 category: "perfumes"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 11 Deliciously Sweet Perfumes That Smell like Candy ...
@@ -114,16 +114,16 @@ This article was written in collaboration with editor Vanessa Salles.
 
 ## Related Posts
 
-- [punk perfume](https://perfumes.allwomenstalk.com/punk-rock-perfumes-to-try/)
-- [mandarin sky cologne review](https://perfumes.allwomenstalk.com/fab-perfumes-for-women-in-their-20s/)
-- [best sensual perfumes](https://perfumes.allwomenstalk.com/beautiful-sensual-perfumes-for-women/)
-- [ladies perfume in qatar](https://perfumes.allwomenstalk.com/seductive-perfumes-that-you-should-try/)
-- [how can i make my perfume last longer](https://perfumes.allwomenstalk.com/ways-to-make-your-perfume-last-longer/)
 - [inexpensive perfumes](https://perfumes.allwomenstalk.com/inexpensive-perfumes-that-smell-amazing/)
-- [classic givenchy perfume](https://perfumes.allwomenstalk.com/classic-perfumes-that-still-rock/)
+- [best sensual perfumes](https://perfumes.allwomenstalk.com/beautiful-sensual-perfumes-for-women/)
+- [how to make your own perfume](https://perfumes.allwomenstalk.com/steps-to-making-your-own-perfume/)
+- [mandarin sky cologne review](https://perfumes.allwomenstalk.com/fab-perfumes-for-women-in-their-20s/)
 - [difference between a mist and perfume](https://perfumes.allwomenstalk.com/differences-between-body-mist-perfume/)
 - [perfumes for mothers](https://perfumes.allwomenstalk.com/perfumes-for-your-mom-for-mothers-day/)
-- [how to make your own perfume](https://perfumes.allwomenstalk.com/steps-to-making-your-own-perfume/)
+- [ladies perfume in qatar](https://perfumes.allwomenstalk.com/seductive-perfumes-that-you-should-try/)
+- [how can i make my perfume last longer](https://perfumes.allwomenstalk.com/ways-to-make-your-perfume-last-longer/)
+- [classic givenchy perfume](https://perfumes.allwomenstalk.com/classic-perfumes-that-still-rock/)
+- [punk perfume](https://perfumes.allwomenstalk.com/punk-rock-perfumes-to-try/)
 - [7 Summer Perfumes I Adore ...](https://perfumes.allwomenstalk.com/summer-perfumes-i-adore/)
 - [7 Deliciously Warm Floral Perfumes That Are Just P...](https://perfumes.allwomenstalk.com/deliciously-warm-floral-perfumes-that-are-just-perfect-for-winter/)
 

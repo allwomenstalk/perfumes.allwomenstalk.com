@@ -3,7 +3,7 @@ title: "3 Ingredient DIY Solid Perfume ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://perfumes.allwomenstalk.com/ingredient-diy-solid-perfume/"
 category: "perfumes"
-last_updated: "2026-05-30"
+last_updated: "2026-06-02"
 ---
 
 # 3 Ingredient DIY Solid Perfume ...
@@ -22,16 +22,16 @@ Good luck!
 
 ## Related Posts
 
-- [decoded perfumes](https://fashion.allwomenstalk.com/decoding-fragrance-families-and-notes/)
-- [Coach Fragrance Line amp LE Straw Basket with Good...](https://allwomenstalk.com/coach-fragrance-line-le-straw-basket-with-goodies/)
-- [Trying out the Coach Perfume](https://allwomenstalk.com/trying-out-the-coach-perfume/)
-- [best black orchid clone](https://allwomenstalk.com/best-perfume-clones-2022/)
-- [raspberry perfume](https://perfumes.allwomenstalk.com/diy-wild-raspberry-rose-infusion-perfume/)
 - [diy body mist](https://perfumes.allwomenstalk.com/diy-vanilla-body-mist/)
-- [sensual luxury perfume](https://allwomenstalk.com/luxury-perfumes-to-help-you-exude-sensuality/)
-- [Amour Fragrance by Kenzo](https://allwomenstalk.com/amour-fragrance-by-kenzo/)
-- [aquavir](https://perfumes.allwomenstalk.com/perfect-everyday-perfumes-you-will-love/)
+- [Trying out the Coach Perfume](https://allwomenstalk.com/trying-out-the-coach-perfume/)
 - [dollarama perfume](https://perfumes.allwomenstalk.com/smell-good-without-breaking-the-bank-with-dollar-store-perfumes/)
+- [raspberry perfume](https://perfumes.allwomenstalk.com/diy-wild-raspberry-rose-infusion-perfume/)
+- [Coach Fragrance Line amp LE Straw Basket with Good...](https://allwomenstalk.com/coach-fragrance-line-le-straw-basket-with-goodies/)
+- [sensual luxury perfume](https://allwomenstalk.com/luxury-perfumes-to-help-you-exude-sensuality/)
+- [aquavir](https://perfumes.allwomenstalk.com/perfect-everyday-perfumes-you-will-love/)
+- [best black orchid clone](https://allwomenstalk.com/best-perfume-clones-2022/)
+- [decoded perfumes](https://fashion.allwomenstalk.com/decoding-fragrance-families-and-notes/)
+- [Amour Fragrance by Kenzo](https://allwomenstalk.com/amour-fragrance-by-kenzo/)
 - [Fragrance Tidbits ...](https://allwomenstalk.com/fragrance-tidbits-2/)
 - [A Different Kind of Scent: Organic amp Natural Per...](https://allwomenstalk.com/a-different-kind-of-scent-organic-natural-perfumes/)
 
