@@ -1,12 +1,12 @@
 ---
-title: "These 23 Floral Perfumes Will Make Him Swoon on Valentines Day ..."
+title: "These 23 Floral Perfumes Will Make Him Swoon on Valentine's Day ..."
 description: "Tocca Florence; Viktor & Rolf Flowerbomb; Versace Crystal Noir; Yves Saint Laurent Parisienne; Gucci Bamboo; More ..."
 url: "https://perfumes.allwomenstalk.com/these-floral-perfumes-will-make-him-swoon-on-valentines-day/"
 category: "perfumes"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# These 23 Floral Perfumes Will Make Him Swoon on Valentines Day ...
+# These 23 Floral Perfumes Will Make Him Swoon on Valentine's Day ...
 
 Want to make his head swim this Valentine's Day? Why not try a new floral perfume, a light, feminine scent that's sure give him spring fever in the middle of February. Here are a few of my fave florals to give you a some fresh, flirty ideas.
 
@@ -175,18 +175,18 @@ This article was written in collaboration with editor Lisa Washington.
 
 ## Related Posts
 
-- [how to pronounce cologne](https://perfumes.allwomenstalk.com/guys-say-they-love-these-herbaceous-colognes/)
-- [candles that make your house smell good](https://lifestyle.allwomenstalk.com/candle-scent-combos-thatll-make-your-house-smell-delicious/)
-- [best perfume for workplace](https://perfumes.allwomenstalk.com/low-key-fragrances-that-are-fit-for-the-office/)
-- [hanae mori butterfly eau de toilette](https://perfumes.allwomenstalk.com/classic-spring-scents-that-beat-all-the-new-stuff/)
-- [purfume chart](https://perfumes.allwomenstalk.com/this-chart-will-tell-you-which-perfume-fits-your-personality/)
-- [best dark feminine perfumes](https://perfumes.allwomenstalk.com/feel-like-a-girly-girl-with-these-feminine-perfumes/)
 - [rose scented perfume](https://perfumes.allwomenstalk.com/life-is-a-rose-garden-with-these-scents/)
 - [viktor and rolf flowerbomb rollerball](https://perfumes.allwomenstalk.com/rollerballs-of-your-all-time-favorite-spring-scents/)
+- [best perfume for workplace](https://perfumes.allwomenstalk.com/low-key-fragrances-that-are-fit-for-the-office/)
+- [purfume chart](https://perfumes.allwomenstalk.com/this-chart-will-tell-you-which-perfume-fits-your-personality/)
 - [how to find your perfect perfume](https://perfumes.allwomenstalk.com/how-do-you-choose-the-correct-perfume-for-you/)
+- [how to pronounce cologne](https://perfumes.allwomenstalk.com/guys-say-they-love-these-herbaceous-colognes/)
+- [best dark feminine perfumes](https://perfumes.allwomenstalk.com/feel-like-a-girly-girl-with-these-feminine-perfumes/)
+- [hanae mori butterfly eau de toilette](https://perfumes.allwomenstalk.com/classic-spring-scents-that-beat-all-the-new-stuff/)
 - [john varvatos colognes](https://perfumes.allwomenstalk.com/talk-your-bf-into-wearing-these-sweet-springtime-colognes/)
+- [candles that make your house smell good](https://lifestyle.allwomenstalk.com/candle-scent-combos-thatll-make-your-house-smell-delicious/)
 - [7 Deliciously Warm Floral Perfumes That Are Just P...](https://perfumes.allwomenstalk.com/deliciously-warm-floral-perfumes-that-are-just-perfect-for-winter/)
-- [20 Greatest Valentines Day Gifts for Women ...](https://allwomenstalk.com/20-greatest-valentine-gifts-to-make-her-happy/)
+- [20 Greatest Valentine's Day Gifts for Women ...](https://allwomenstalk.com/20-greatest-valentine-gifts-to-make-her-happy/)
 
 ## Site Information
 

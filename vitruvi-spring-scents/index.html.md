@@ -3,7 +3,7 @@ title: "Dive into Spring Bliss with Vitruvi’s New Scents..."
 description: "Orange Grove: A Stroll in the Sun...; Citrus Blossom: Where Gardens Dream...; Creating the Perfect Ambiance...; A Spring of Sensory Bliss...; More ..."
 url: "https://perfumes.allwomenstalk.com/vitruvi-spring-scents/"
 category: "perfumes"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
 # Dive into Spring Bliss with Vitruvi’s New Scents...

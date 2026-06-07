@@ -1,12 +1,12 @@
 ---
-title: "Low-Key Fragrances for Girls Who Love to Wear Perfume to Work ..."
+title: "Low-Key Fragrances 🤳 for Girls Who Love to Wear Perfume to Work ..."
 description: "Si by Armani; Intrusion by Oscar De La Renta; Oh Lola by Marc Jacobs; Be Delicious by DKNY; Poppy by Coach; More ..."
 url: "https://perfumes.allwomenstalk.com/low-key-fragrances-that-are-fit-for-the-office/"
 category: "perfumes"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# Low\-Key Fragrances  for Girls Who Love to Wear Perfume to Work ...
+# Low\-Key Fragrances 🤳 for Girls Who Love to Wear Perfume to Work ...
 
 Wanting to wear perfume and smell beautiful is perfectly understandable. I mean, I wear cologne, not perfume, but I get it, plus I'm married to a perfume collector. Wearing perfume when you're at the office or at school, however, that's a crap shoot. There might be people around you who don't like perfume, they may be sensitive to strong fragrances, they might even be allergic. Bummer, right? Because you want to be polite and considerate, of course, you don't want to make anyone else feel sick or uncomfortable, but does that mean that you have to stop wearing your favorite fragrances? Nope. You just have to look for a few scents that work well in spaces like offices, classrooms, and other small spaces. I got this.
 
@@ -148,18 +148,18 @@ Do you worry about which perfumes you wear to the office?
 
 ## Related Posts
 
-- [chlor perfume](https://perfumes.allwomenstalk.com/how-to-select-your-signature-fragrance/)
-- [preppy perfumes](https://perfumes.allwomenstalk.com/throwback-perfumes-we-wore-back-in-the-90s/)
-- [light scented womens perfume](https://perfumes.allwomenstalk.com/spring-clean-your-fragrance-collection-with-these-light-and-airy-scents/)
-- [bon bons malizia milk shake](https://perfumes.allwomenstalk.com/juicy-perfumes-for-women-with-a-sweet-tooth/)
-- [perfumes that smell like the beach](https://perfumes.allwomenstalk.com/perfumes-for-women-who-want-to-smell-like-summer/)
 - [best perfume for college girl](https://perfumes.allwomenstalk.com/how-to-shop-for-a-perfume-you-are-actually-gonna-love-and-use/)
-- [how to smell nice all day](https://beauty.allwomenstalk.com/how-to-smell-super-fresh-when-its-hot-outside/)
 - [top natural deodorant for womens](https://skincare.allwomenstalk.com/natural-deodorant-brands-for-women-reducing-their-exposure-to-chemicals/)
-- [perfumes zodiac sign](https://perfumes.allwomenstalk.com/a-signature-perfume-for-every-zodiac-sign-check-out-yours/)
+- [chlor perfume](https://perfumes.allwomenstalk.com/how-to-select-your-signature-fragrance/)
+- [bon bons malizia milk shake](https://perfumes.allwomenstalk.com/juicy-perfumes-for-women-with-a-sweet-tooth/)
 - [portable fragrance bottle](https://perfumes.allwomenstalk.com/brilliant-ways-to-reuse-your-old-perfume-bottles/)
+- [perfumes that smell like the beach](https://perfumes.allwomenstalk.com/perfumes-for-women-who-want-to-smell-like-summer/)
+- [how to smell nice all day](https://beauty.allwomenstalk.com/how-to-smell-super-fresh-when-its-hot-outside/)
+- [perfumes zodiac sign](https://perfumes.allwomenstalk.com/a-signature-perfume-for-every-zodiac-sign-check-out-yours/)
+- [preppy perfumes](https://perfumes.allwomenstalk.com/throwback-perfumes-we-wore-back-in-the-90s/)
+- [light scented women's perfume](https://perfumes.allwomenstalk.com/spring-clean-your-fragrance-collection-with-these-light-and-airy-scents/)
 - [Fragrance Tidbits ...](https://allwomenstalk.com/fragrance-tidbits-2/)
-- [A Different Kind of Scent: Organic amp Natural Per...](https://allwomenstalk.com/a-different-kind-of-scent-organic-natural-perfumes/)
+- [A Different Kind of Scent: Organic & Natural P...](https://allwomenstalk.com/a-different-kind-of-scent-organic-natural-perfumes/)
 
 ## Site Information
 

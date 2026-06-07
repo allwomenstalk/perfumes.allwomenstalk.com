@@ -1,12 +1,12 @@
 ---
-title: "Penhaligon’s New Fortuitous Finley Fragrance Gallops Between Elegance and Wild Seduction This Lunar New Year"
+title: "Penhaligon’s New Fortuitous Finley Fragrance Gallops Between Elegance and Wild Seduction This Lunar New Year …"
 description: "A Portrait Worth Framing - The Story Behind Fortuitous Finley; The Fragrance Profile - Leather-Woody Gourmand With Sophisticated Bite; Why Fortuitous Finley Stands Out in the World of Luxury Fragrance; The Penhaligon’s Heritage - British Craftsmanship Meets Modern Creativity; Longevity, Sillage, and Performance; More ..."
 url: "https://perfumes.allwomenstalk.com/penhaligons-fortuitous-finley-fragrance-elegance-seduction/"
 category: "perfumes"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# Penhaligon’s New Fortuitous Finley Fragrance Gallops Between Elegance and Wild Seduction This Lunar New Year
+# Penhaligon’s New Fortuitous Finley Fragrance Gallops Between Elegance and Wild Seduction This Lunar New Year …
 
 **Every seasoned beauty editor** has a personal weakness. Mine? A **fragrance launch that arrives with storytelling, heritage, and just enough eccentric British charm** to make my already overcrowded double sink vanity whisper, “_Make room._” This is exactly the case with the elegant and chic [Fortuitous Finley](https://www.penhaligons.com/us/en/p/fortuitous-finley-eau-de-parfum-75-ml--000000000065200469?utm_source=adwords&utm_medium=paid_search_shopping_fragrances&utm_campaign=PEN_USA_Fragrances-Shopping_ENG_NA_Global_CONV&utm_content=conversion&utm_bu=fragrance&utm_clicktype=shopping&utm_mkbr=brd_usa&gad_source=1&gad_campaignid=20344800652&gbraid=0AAAAAp3QVEN2cKAdYXneqKx4x5XLSM6qV&gclid=EAIaIQobChMI1eCNw5rXkgMVA05HAR2epzVQEAQYASABEgKKW_D_BwE), the newest addition to [Penhaligon’s Portraits Collection](https://www.penhaligons.com/us/en/c/collections--60000/portraits-collection--60120) - a **leather-woody gourmand** that celebrates the Lunar New Year and the spirited symbolism of the **Year of the Horse** with unapologetic flair.
 

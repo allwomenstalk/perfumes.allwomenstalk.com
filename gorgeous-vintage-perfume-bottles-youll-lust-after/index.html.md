@@ -1,12 +1,12 @@
 ---
-title: "55 Gorgeous Vintage Perfume Bottles Youll Lust after ..."
+title: "55 Gorgeous Vintage Perfume Bottles You'll Lust after ..."
 description: "Green Butterfly; Vintage Perfume Bottle; 19th Century Bottle; ‘Sirenes’; Swan; More ..."
 url: "https://perfumes.allwomenstalk.com/gorgeous-vintage-perfume-bottles-youll-lust-after/"
 category: "perfumes"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 55 Gorgeous Vintage Perfume Bottles Youll Lust after ...
+# 55 Gorgeous Vintage Perfume Bottles You'll Lust after ...
 
 I've got a new obsession - vintage perfume bottles! I've always thought glass to be a wonderful artistic medium and have a small collection of antique and vintage drinking glasses. After seeing some of these vintage perfume bottles, I might just have to start a new hobby.
 
@@ -438,16 +438,16 @@ I'm off to research how to start a collection ... if only! Do you love vintage p
 
 ## Related Posts
 
-- [nest fragrances gift set](https://perfumes.allwomenstalk.com/fragrance-gift-sets-anyone-would-love-to-receive/)
-- [chess perfume](https://perfumes.allwomenstalk.com/best-ever-tips-for-wearing-perfume/)
 - [perfume layering with bath and body works](https://perfumes.allwomenstalk.com/ways-to-layer-your-fragrance/)
-- [perfume for introverts](https://perfumes.allwomenstalk.com/perfumes-based-on-personality-types-that-make-great-gifts/)
-- [da bombs bath bombs](https://beauty.allwomenstalk.com/bath-bombs-that-are-da-bomb/)
-- [best body lotion scents](https://skincare.allwomenstalk.com/sensuous-fall-inspired-scented-lotions/)
-- [aftershave gift sets](https://perfumes.allwomenstalk.com/after-shave-gift-sets-to-make-your-men-smell-fab/)
 - [zen scented candles](https://lifestyle.allwomenstalk.com/find-your-zen-with-falls-best-scented-candles/)
-- [virtual perfume](https://apps.allwomenstalk.com/fragrant-apps-for-perfume-lovers/)
 - [how to choose a perfume that suits you](https://perfumes.allwomenstalk.com/tips-for-choosing-a-perfume-thats-right-for-you/)
+- [da bombs bath bombs](https://beauty.allwomenstalk.com/bath-bombs-that-are-da-bomb/)
+- [chess perfume](https://perfumes.allwomenstalk.com/best-ever-tips-for-wearing-perfume/)
+- [best body lotion scents](https://skincare.allwomenstalk.com/sensuous-fall-inspired-scented-lotions/)
+- [virtual perfume](https://apps.allwomenstalk.com/fragrant-apps-for-perfume-lovers/)
+- [nest fragrances gift set](https://perfumes.allwomenstalk.com/fragrance-gift-sets-anyone-would-love-to-receive/)
+- [aftershave gift sets](https://perfumes.allwomenstalk.com/after-shave-gift-sets-to-make-your-men-smell-fab/)
+- [perfume for introverts](https://perfumes.allwomenstalk.com/perfumes-based-on-personality-types-that-make-great-gifts/)
 - [7 Summer Perfumes I Adore ...](https://perfumes.allwomenstalk.com/summer-perfumes-i-adore/)
 - [7 Simply Enchanting Classic French Perfumes ...](https://perfumes.allwomenstalk.com/classic-french-perfumes/)
 

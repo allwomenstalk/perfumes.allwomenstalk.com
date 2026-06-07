@@ -1,12 +1,12 @@
 ---
-title: "9 Best Colgones to Buy Your Teen Boyfriend That Wont Make Him Smell like an Old Man ..."
+title: "9 Best Colgones to Buy Your Teen Boyfriend That Won't Make Him Smell like an Old Man ..."
 description: "Nautica – Voyage; Abercrombie and Fitch – Fierce; Joop Homme; Rochas Man by Rochas; 360 Red by Perry Ellis; More ..."
 url: "https://perfumes.allwomenstalk.com/best-colognes-to-buy-your-teen-boyfriend/"
 category: "perfumes"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# 9 Best Colgones to Buy Your Teen Boyfriend That Wont Make Him Smell like an Old Man ...
+# 9 Best Colgones to Buy Your Teen Boyfriend That Won't Make Him Smell like an Old Man ...
 
 There’s probably no group of people harder to buy for than teenage boys. I think it’s a brave girl who decides to buy her teen boyfriend a cologne but if that’s your choice, here are some that fall into the realms of “I’m sure he’ll like that”. And moms of teenage boys – you might find this list useful for birthdays and Christmas.
 
@@ -86,16 +86,16 @@ Which do you like the sound of most?
 
 ## Related Posts
 
-- [how to find your perfect perfume](https://perfumes.allwomenstalk.com/how-do-you-choose-the-correct-perfume-for-you/)
-- [clean fragrance hair mist](https://hair.allwomenstalk.com/hair-perfumes-to-keep-you-smelling-sweet-all-day-long/)
-- [best christmas fragrances for her](https://perfumes.allwomenstalk.com/these-festive-perfumes-will-brighten-your-holidays/)
-- [cool weather](https://perfumes.allwomenstalk.com/spicy-perfumes-to-keep-things-hot-when-the-weather-gets-cold/)
-- [gris dior macys](https://perfumes.allwomenstalk.com/non-basic-perfumes-youll-want-to-wear-all-week-long/)
-- [best dark feminine perfumes](https://perfumes.allwomenstalk.com/feel-like-a-girly-girl-with-these-feminine-perfumes/)
-- [perfumes that smell like royalty](https://perfumes.allwomenstalk.com/hollywood-inspired-perfumes-thatll-make-you-smell-like-a-star/)
-- [types of perfumes and fragrance categories](https://perfumes.allwomenstalk.com/perfumes-101-decoding-the-types-of-fragrance/)
-- [purfume chart](https://perfumes.allwomenstalk.com/this-chart-will-tell-you-which-perfume-fits-your-personality/)
 - [valentines perfumes](https://perfumes.allwomenstalk.com/these-floral-perfumes-will-make-him-swoon-on-valentines-day/)
+- [how to find your perfect perfume](https://perfumes.allwomenstalk.com/how-do-you-choose-the-correct-perfume-for-you/)
+- [cool weather](https://perfumes.allwomenstalk.com/spicy-perfumes-to-keep-things-hot-when-the-weather-gets-cold/)
+- [purfume chart](https://perfumes.allwomenstalk.com/this-chart-will-tell-you-which-perfume-fits-your-personality/)
+- [types of perfumes and fragrance categories](https://perfumes.allwomenstalk.com/perfumes-101-decoding-the-types-of-fragrance/)
+- [best christmas fragrances for her](https://perfumes.allwomenstalk.com/these-festive-perfumes-will-brighten-your-holidays/)
+- [clean fragrance hair mist](https://hair.allwomenstalk.com/hair-perfumes-to-keep-you-smelling-sweet-all-day-long/)
+- [best dark feminine perfumes](https://perfumes.allwomenstalk.com/feel-like-a-girly-girl-with-these-feminine-perfumes/)
+- [gris dior macy's](https://perfumes.allwomenstalk.com/non-basic-perfumes-youll-want-to-wear-all-week-long/)
+- [perfumes that smell like royalty](https://perfumes.allwomenstalk.com/hollywood-inspired-perfumes-thatll-make-you-smell-like-a-star/)
 - [8 Awesome Smelling Shower Gels ...](https://skincare.allwomenstalk.com/awesome-smelling-shower-gels/)
 - [7 Tips to Make Your Perfume Stay Fresh ...](https://perfumes.allwomenstalk.com/tips-to-make-your-perfume-stay-fresh/)
 

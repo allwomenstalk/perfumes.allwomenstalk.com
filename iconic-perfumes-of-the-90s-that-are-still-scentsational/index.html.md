@@ -1,12 +1,12 @@
 ---
-title: "Iconic Perfumes of the 90s That Are Still Scentsational Today ..."
+title: "Iconic Perfumes of the '90s That Are Still Scentsational Today ..."
 description: "Obsession; CK One; Trésor; Anaïs Anaïs; Angel; More ..."
 url: "https://perfumes.allwomenstalk.com/iconic-perfumes-of-the-90s-that-are-still-scentsational/"
 category: "perfumes"
-last_updated: "2026-06-02"
+last_updated: "2026-06-07"
 ---
 
-# Iconic Perfumes of the 90s That Are Still Scentsational Today ...
+# Iconic Perfumes of the '90s That Are Still Scentsational Today ...
 
 **Iconic perfumes** of the '90s have a unique, almost magical ability to transport us back to an era of dial-up internet, butterfly clips, and unforgettable fashion choices. Now, in 2024, as we’re living in the future and yet drowning in nostalgia, it’s intriguing-and somewhat humorous-to see that these “_throwback scents_” have retained their original charm. But why, oh why, have these **iconic perfumes** stood the test of time, unlike my _Tamagotchi_, which didn’t even make it through '98?
 
@@ -73,16 +73,16 @@ I still reach for Sunflowers on the occasion I want something light and floral. 
 
 ## Related Posts
 
-- [how to keep clothes smelling good in closet](https://fashion.allwomenstalk.com/tips-to-keep-your-clothes-smelling-fresh/)
-- [what womens perfume gets the most compliments](https://perfumes.allwomenstalk.com/seductive-perfumes-thatll-get-his-attention/)
-- [bbw hand sanitizer](https://perfumes.allwomenstalk.com/the-best-hand-sanitizer-scents/)
 - [mysterious beach perfume britney spears](https://perfumes.allwomenstalk.com/popstar-perfumes-thatll-make-you-smell-like-an-a-lister/)
-- [can perfume give you a headache](https://perfumes.allwomenstalk.com/subtle-perfumes-that-wont-give-you-a-headache/)
 - [childhood scents](https://inspiration.allwomenstalk.com/scents-from-your-childhood-and-what-they-probably-remind-you-of/)
+- [how to keep clothes smelling good in closet](https://fashion.allwomenstalk.com/tips-to-keep-your-clothes-smelling-fresh/)
+- [what women's perfume gets the most compliments](https://perfumes.allwomenstalk.com/seductive-perfumes-thatll-get-his-attention/)
+- [can perfume give you a headache](https://perfumes.allwomenstalk.com/subtle-perfumes-that-wont-give-you-a-headache/)
+- [top 10 best selling perfumes in the world](https://perfumes.allwomenstalk.com/sephoras-best-selling-perfumes-you-need-to-try/)
 - [pulse points to apply perfume](https://perfumes.allwomenstalk.com/make-your-perfume-last-by-spraying-it-on-these-spots/)
 - [perfume for the office](https://perfumes.allwomenstalk.com/sexy-scents-that-you-can-still-wear-to-the-office/)
+- [bbw hand sanitizer](https://perfumes.allwomenstalk.com/the-best-hand-sanitizer-scents/)
 - [evoke eros](https://perfumes.allwomenstalk.com/sexy-scents-for-summer-nights-men-cannot-resist/)
-- [top 10 best selling perfumes in the world](https://perfumes.allwomenstalk.com/sephoras-best-selling-perfumes-you-need-to-try/)
 - [10 Popular Scents in Perfumes and Colognes ...](https://perfumes.allwomenstalk.com/popular-scents-in-perfumes-and-colognes/)
 - [10 Best and Fabulously Enchanting Scents Ever ...](https://perfumes.allwomenstalk.com/best-and-fabulously-enchanting-scents-ever/)
 
