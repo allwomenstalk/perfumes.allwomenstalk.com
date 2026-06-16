@@ -42,15 +42,15 @@ How do you find the perfect perfume? What’s your signature scent?
 
 ## Related Posts
 
-- [hanae mori butterfly eau de toilette](https://perfumes.allwomenstalk.com/classic-spring-scents-that-beat-all-the-new-stuff/)
+- [best dark feminine perfumes](https://perfumes.allwomenstalk.com/feel-like-a-girly-girl-with-these-feminine-perfumes/)
 - [purfume chart](https://perfumes.allwomenstalk.com/this-chart-will-tell-you-which-perfume-fits-your-personality/)
 - [john varvatos colognes](https://perfumes.allwomenstalk.com/talk-your-bf-into-wearing-these-sweet-springtime-colognes/)
-- [how to pronounce cologne](https://perfumes.allwomenstalk.com/guys-say-they-love-these-herbaceous-colognes/)
-- [best dark feminine perfumes](https://perfumes.allwomenstalk.com/feel-like-a-girly-girl-with-these-feminine-perfumes/)
-- [candles that make your house smell good](https://lifestyle.allwomenstalk.com/candle-scent-combos-thatll-make-your-house-smell-delicious/)
-- [best perfume for workplace](https://perfumes.allwomenstalk.com/low-key-fragrances-that-are-fit-for-the-office/)
 - [light scented women's perfume](https://perfumes.allwomenstalk.com/spring-clean-your-fragrance-collection-with-these-light-and-airy-scents/)
+- [how to pronounce cologne](https://perfumes.allwomenstalk.com/guys-say-they-love-these-herbaceous-colognes/)
+- [best perfume for workplace](https://perfumes.allwomenstalk.com/low-key-fragrances-that-are-fit-for-the-office/)
+- [candles that make your house smell good](https://lifestyle.allwomenstalk.com/candle-scent-combos-thatll-make-your-house-smell-delicious/)
 - [rose scented perfume](https://perfumes.allwomenstalk.com/life-is-a-rose-garden-with-these-scents/)
+- [hanae mori butterfly eau de toilette](https://perfumes.allwomenstalk.com/classic-spring-scents-that-beat-all-the-new-stuff/)
 - [viktor and rolf flowerbomb rollerball](https://perfumes.allwomenstalk.com/rollerballs-of-your-all-time-favorite-spring-scents/)
 - [10 Popular Scents in Perfumes and Colognes ...](https://perfumes.allwomenstalk.com/popular-scents-in-perfumes-and-colognes/)
 - [7 Ways to the Best Perfume for You ...](https://perfumes.allwomenstalk.com/ways-to-the-best-perfume-for-you/)

@@ -100,16 +100,16 @@ Let's tie it all together. **Diptyque's journey** from a humble shop on Boulevar
 
 ## Related Posts
 
-- [best scents for meditation](https://twilight.allwomenstalk.com/5-relaxing-scents-for-meditation/)
-- [riche stylo infinite sky](https://perfumes.allwomenstalk.com/most-charmingly-memorable-scents-for-men-this-christmas/)
-- [facts about perfumes](https://perfumes.allwomenstalk.com/interesting-facts-about-perfumes/)
 - [shower gel scents](https://skincare.allwomenstalk.com/awesome-smelling-shower-gels/)
-- [passion fruit daiquiri philosophy](https://skincare.allwomenstalk.com/yummy-smelling-bubble-baths/)
-- [alternative for perfume](https://perfumes.allwomenstalk.com/alternatives-to-retail-perfumes/)
-- [10 Popular Scents in Perfumes and Colognes ...](https://perfumes.allwomenstalk.com/popular-scents-in-perfumes-and-colognes/)
-- [7 Summer Perfumes I Adore ...](https://perfumes.allwomenstalk.com/summer-perfumes-i-adore/)
-- [4 Carrière Frères Scented Solid Body Soaps to Elev...](https://beauty.allwomenstalk.com/carriere-freres-solid-soaps/)
 - [enchanted perfumes](https://perfumes.allwomenstalk.com/best-and-fabulously-enchanting-scents-ever/)
+- [7 Summer Perfumes I Adore ...](https://perfumes.allwomenstalk.com/summer-perfumes-i-adore/)
+- [passion fruit daiquiri philosophy](https://skincare.allwomenstalk.com/yummy-smelling-bubble-baths/)
+- [4 Carrière Frères Scented Solid Body Soaps to Elev...](https://beauty.allwomenstalk.com/carriere-freres-solid-soaps/)
+- [10 Popular Scents in Perfumes and Colognes ...](https://perfumes.allwomenstalk.com/popular-scents-in-perfumes-and-colognes/)
+- [best scents for meditation](https://twilight.allwomenstalk.com/5-relaxing-scents-for-meditation/)
+- [facts about perfumes](https://perfumes.allwomenstalk.com/interesting-facts-about-perfumes/)
+- [riche stylo infinite sky](https://perfumes.allwomenstalk.com/most-charmingly-memorable-scents-for-men-this-christmas/)
+- [alternative for perfume](https://perfumes.allwomenstalk.com/alternatives-to-retail-perfumes/)
 - [7 Luscious Perfumes from D&G ...](https://perfumes.allwomenstalk.com/luscious-perfumes-from-dg/)
 - [7 Simply Enchanting Classic French Perfumes ...](https://perfumes.allwomenstalk.com/classic-french-perfumes/)
 

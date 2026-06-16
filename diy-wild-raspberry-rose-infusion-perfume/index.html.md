@@ -22,16 +22,16 @@ You deserve it!
 
 ## Related Posts
 
-- [A Scentilicious Deal from Estee Lauder](https://allwomenstalk.com/a-scentilicious-deal-from-estee-lauder/)
-- [Amour Fragrance, by Kenzo](https://allwomenstalk.com/amour-fragrance-by-kenzo/)
-- [decoded perfumes](https://fashion.allwomenstalk.com/decoding-fragrance-families-and-notes/)
-- [dollarama perfume](https://perfumes.allwomenstalk.com/smell-good-without-breaking-the-bank-with-dollar-store-perfumes/)
-- [aquavir](https://perfumes.allwomenstalk.com/perfect-everyday-perfumes-you-will-love/)
-- [best black orchid clone](https://allwomenstalk.com/best-perfume-clones-2022/)
-- [diy body mist](https://perfumes.allwomenstalk.com/diy-vanilla-body-mist/)
-- [Trying out the Coach Perfume](https://allwomenstalk.com/trying-out-the-coach-perfume/)
-- [sensual luxury perfume](https://allwomenstalk.com/luxury-perfumes-to-help-you-exude-sensuality/)
 - [Coach Fragrance Line & LE Straw Basket with Go...](https://allwomenstalk.com/coach-fragrance-line-le-straw-basket-with-goodies/)
+- [dollarama perfume](https://perfumes.allwomenstalk.com/smell-good-without-breaking-the-bank-with-dollar-store-perfumes/)
+- [best black orchid clone](https://allwomenstalk.com/best-perfume-clones-2022/)
+- [Amour Fragrance, by Kenzo](https://allwomenstalk.com/amour-fragrance-by-kenzo/)
+- [Trying out the Coach Perfume](https://allwomenstalk.com/trying-out-the-coach-perfume/)
+- [diy body mist](https://perfumes.allwomenstalk.com/diy-vanilla-body-mist/)
+- [A Scentilicious Deal from Estee Lauder](https://allwomenstalk.com/a-scentilicious-deal-from-estee-lauder/)
+- [aquavir](https://perfumes.allwomenstalk.com/perfect-everyday-perfumes-you-will-love/)
+- [decoded perfumes](https://fashion.allwomenstalk.com/decoding-fragrance-families-and-notes/)
+- [sensual luxury perfume](https://allwomenstalk.com/luxury-perfumes-to-help-you-exude-sensuality/)
 - [A Different Kind of Scent: Organic & Natural P...](https://allwomenstalk.com/a-different-kind-of-scent-organic-natural-perfumes/)
 - [8 Lavender Infused Products ...](https://allwomenstalk.com/8-lavender-infused-products/)
 

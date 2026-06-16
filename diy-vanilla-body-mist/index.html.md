@@ -32,16 +32,16 @@ I hope you like the video!
 
 ## Related Posts
 
-- [Apple Scented Opportunities ...](https://allwomenstalk.com/apple-scented-opportunities/)
 - [Amour Fragrance, by Kenzo](https://allwomenstalk.com/amour-fragrance-by-kenzo/)
-- [A Scentilicious Deal from Estee Lauder](https://allwomenstalk.com/a-scentilicious-deal-from-estee-lauder/)
-- [dollarama perfume](https://perfumes.allwomenstalk.com/smell-good-without-breaking-the-bank-with-dollar-store-perfumes/)
-- [decoded perfumes](https://fashion.allwomenstalk.com/decoding-fragrance-families-and-notes/)
-- [Coach Fragrance Line & LE Straw Basket with Go...](https://allwomenstalk.com/coach-fragrance-line-le-straw-basket-with-goodies/)
-- [aquavir](https://perfumes.allwomenstalk.com/perfect-everyday-perfumes-you-will-love/)
-- [Trying out the Coach Perfume](https://allwomenstalk.com/trying-out-the-coach-perfume/)
-- [best black orchid clone](https://allwomenstalk.com/best-perfume-clones-2022/)
 - [sensual luxury perfume](https://allwomenstalk.com/luxury-perfumes-to-help-you-exude-sensuality/)
+- [A Scentilicious Deal from Estee Lauder](https://allwomenstalk.com/a-scentilicious-deal-from-estee-lauder/)
+- [aquavir](https://perfumes.allwomenstalk.com/perfect-everyday-perfumes-you-will-love/)
+- [best black orchid clone](https://allwomenstalk.com/best-perfume-clones-2022/)
+- [decoded perfumes](https://fashion.allwomenstalk.com/decoding-fragrance-families-and-notes/)
+- [Trying out the Coach Perfume](https://allwomenstalk.com/trying-out-the-coach-perfume/)
+- [dollarama perfume](https://perfumes.allwomenstalk.com/smell-good-without-breaking-the-bank-with-dollar-store-perfumes/)
+- [Apple Scented Opportunities ...](https://allwomenstalk.com/apple-scented-opportunities/)
+- [Coach Fragrance Line & LE Straw Basket with Go...](https://allwomenstalk.com/coach-fragrance-line-le-straw-basket-with-goodies/)
 - [8 Quickie DIY All-natural Beauty Products ...](https://beauty.allwomenstalk.com/quickie-diy-all-natural-beauty-products/)
 - [21 All-natural DIY Beauty Products You'll Love ...](https://beauty.allwomenstalk.com/all-natural-diy-beauty-products-youll-love/)
 

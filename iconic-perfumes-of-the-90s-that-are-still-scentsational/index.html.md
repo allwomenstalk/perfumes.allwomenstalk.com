@@ -73,16 +73,16 @@ I still reach for Sunflowers on the occasion I want something light and floral. 
 
 ## Related Posts
 
-- [bbw hand sanitizer](https://perfumes.allwomenstalk.com/the-best-hand-sanitizer-scents/)
-- [evoke eros](https://perfumes.allwomenstalk.com/sexy-scents-for-summer-nights-men-cannot-resist/)
 - [can perfume give you a headache](https://perfumes.allwomenstalk.com/subtle-perfumes-that-wont-give-you-a-headache/)
-- [pulse points to apply perfume](https://perfumes.allwomenstalk.com/make-your-perfume-last-by-spraying-it-on-these-spots/)
-- [top 10 best selling perfumes in the world](https://perfumes.allwomenstalk.com/sephoras-best-selling-perfumes-you-need-to-try/)
-- [childhood scents](https://inspiration.allwomenstalk.com/scents-from-your-childhood-and-what-they-probably-remind-you-of/)
 - [what women's perfume gets the most compliments](https://perfumes.allwomenstalk.com/seductive-perfumes-thatll-get-his-attention/)
-- [perfume for the office](https://perfumes.allwomenstalk.com/sexy-scents-that-you-can-still-wear-to-the-office/)
-- [how to keep clothes smelling good in closet](https://fashion.allwomenstalk.com/tips-to-keep-your-clothes-smelling-fresh/)
+- [childhood scents](https://inspiration.allwomenstalk.com/scents-from-your-childhood-and-what-they-probably-remind-you-of/)
+- [bbw hand sanitizer](https://perfumes.allwomenstalk.com/the-best-hand-sanitizer-scents/)
+- [top 10 best selling perfumes in the world](https://perfumes.allwomenstalk.com/sephoras-best-selling-perfumes-you-need-to-try/)
 - [mysterious beach perfume britney spears](https://perfumes.allwomenstalk.com/popstar-perfumes-thatll-make-you-smell-like-an-a-lister/)
+- [pulse points to apply perfume](https://perfumes.allwomenstalk.com/make-your-perfume-last-by-spraying-it-on-these-spots/)
+- [perfume for the office](https://perfumes.allwomenstalk.com/sexy-scents-that-you-can-still-wear-to-the-office/)
+- [evoke eros](https://perfumes.allwomenstalk.com/sexy-scents-for-summer-nights-men-cannot-resist/)
+- [how to keep clothes smelling good in closet](https://fashion.allwomenstalk.com/tips-to-keep-your-clothes-smelling-fresh/)
 - [10 Popular Scents in Perfumes and Colognes ...](https://perfumes.allwomenstalk.com/popular-scents-in-perfumes-and-colognes/)
 - [10 Best and Fabulously Enchanting Scents Ever ...](https://perfumes.allwomenstalk.com/best-and-fabulously-enchanting-scents-ever/)
 

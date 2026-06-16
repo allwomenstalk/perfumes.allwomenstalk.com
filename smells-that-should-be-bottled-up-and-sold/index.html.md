@@ -42,16 +42,16 @@ There are tons of smells that have yet to be captured, contained, and sold in st
 
 ## Related Posts
 
-- [l'occitane cherry blossom solid perfume](https://perfumes.allwomenstalk.com/solid-perfumes-to-try/)
-- [best spring scents](https://perfumes.allwomenstalk.com/marvelous-spring-scents-to-try/)
-- [best floral perfumes of all time](https://perfumes.allwomenstalk.com/floral-scented-perfumes-to-try/)
-- [7 Sweet Perfumes to Wear for Your Wedding ...](https://perfumes.allwomenstalk.com/sweet-perfumes-to-wear-for-your-wedding/)
+- [7 Vera Wang Perfumes That I Love ...](https://perfumes.allwomenstalk.com/vera-wang-perfumes-that-i-love/)
 - [9 Useful Essential Oils to Help Keep Pesky Insects...](https://lifestyle.allwomenstalk.com/useful-essential-oils-to-help-keep-pesky-insects-away/)
 - [list of french perfumes](https://perfumes.allwomenstalk.com/french-women-perfumes-to-try/)
-- [7 Vera Wang Perfumes That I Love ...](https://perfumes.allwomenstalk.com/vera-wang-perfumes-that-i-love/)
-- [7 Different Perfume Notes That Last Longer than Yo...](https://perfumes.allwomenstalk.com/different-perfume-notes-that-last-longer/)
+- [7 Sweet Perfumes to Wear for Your Wedding ...](https://perfumes.allwomenstalk.com/sweet-perfumes-to-wear-for-your-wedding/)
 - [8 Amazing Fresh Summer Scents You Need to Try ...](https://perfumes.allwomenstalk.com/fresh-summer-scents-to-try/)
 - [7 Aromatherapy Products to Keep You Healthy and Ha...](https://health.allwomenstalk.com/aromatherapy-products-to-keep-you-healthy-and-happy/)
+- [l'occitane cherry blossom solid perfume](https://perfumes.allwomenstalk.com/solid-perfumes-to-try/)
+- [best floral perfumes of all time](https://perfumes.allwomenstalk.com/floral-scented-perfumes-to-try/)
+- [7 Different Perfume Notes That Last Longer than Yo...](https://perfumes.allwomenstalk.com/different-perfume-notes-that-last-longer/)
+- [best spring scents](https://perfumes.allwomenstalk.com/marvelous-spring-scents-to-try/)
 - [7 Ways to Scent Your Home ...](https://lifestyle.allwomenstalk.com/ways-to-scent-your-home/)
 - [7 Ways to Re-use Plastic Bottles ...](https://allwomenstalk.com/7-ways-to-re-use-plastic-bottles/)
 

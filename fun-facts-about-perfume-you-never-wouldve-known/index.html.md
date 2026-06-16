@@ -42,16 +42,16 @@ I hope you learned an interesting fact about perfume that you can share with you
 
 ## Related Posts
 
-- [halle berry exotic jasmine perfume](https://perfumes.allwomenstalk.com/jasmine-scented-perfumes-that-will-blow-your-mind/)
-- [floral designer perfumes](https://perfumes.allwomenstalk.com/inexpensive-floral-perfumes-that-are-perfect-as-gifts/)
 - [flamestop sunshine](https://lifestyle.allwomenstalk.com/of-the-most-delicious-scented-candles-to-make-your-space-smell-sweet/)
-- [loveswept perfume](https://perfumes.allwomenstalk.com/amazing-fragrances-from-sephora-that-you-will-love/)
 - [best smelling candle for home](https://lifestyle.allwomenstalk.com/best-candle-scents-to-choose-for-your-home/)
 - [smelling hair addiction](https://hair.allwomenstalk.com/hairsprays-that-smell-as-good-as-they-work/)
-- [scents that are aphrodisiacs](https://perfumes.allwomenstalk.com/sensual-perfume-scents-that-are-aphrodisiacs/)
+- [floral designer perfumes](https://perfumes.allwomenstalk.com/inexpensive-floral-perfumes-that-are-perfect-as-gifts/)
 - [seema anand ted talk](https://perfumes.allwomenstalk.com/ways-perfumes-make-you-more-seductive/)
+- [loveswept perfume](https://perfumes.allwomenstalk.com/amazing-fragrances-from-sephora-that-you-will-love/)
+- [scents that are aphrodisiacs](https://perfumes.allwomenstalk.com/sensual-perfume-scents-that-are-aphrodisiacs/)
 - [vanilla perfume drugstore](https://perfumes.allwomenstalk.com/sweet-vanilla-fragrances-that-are-completely-affordable/)
 - [timeless perfume scents](https://perfumes.allwomenstalk.com/timeless-perfumes-youll-love/)
+- [halle berry exotic jasmine perfume](https://perfumes.allwomenstalk.com/jasmine-scented-perfumes-that-will-blow-your-mind/)
 - [7 Summer Perfumes I Adore ...](https://perfumes.allwomenstalk.com/summer-perfumes-i-adore/)
 - [7 Interesting Facts about Perfumes ...](https://perfumes.allwomenstalk.com/interesting-facts-about-perfumes/)
 

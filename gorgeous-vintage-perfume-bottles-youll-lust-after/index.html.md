@@ -438,16 +438,16 @@ I'm off to research how to start a collection ... if only! Do you love vintage p
 
 ## Related Posts
 
-- [perfume layering with bath and body works](https://perfumes.allwomenstalk.com/ways-to-layer-your-fragrance/)
-- [how to choose a perfume that suits you](https://perfumes.allwomenstalk.com/tips-for-choosing-a-perfume-thats-right-for-you/)
 - [virtual perfume](https://apps.allwomenstalk.com/fragrant-apps-for-perfume-lovers/)
+- [aftershave gift sets](https://perfumes.allwomenstalk.com/after-shave-gift-sets-to-make-your-men-smell-fab/)
+- [best body lotion scents](https://skincare.allwomenstalk.com/sensuous-fall-inspired-scented-lotions/)
+- [perfume for introverts](https://perfumes.allwomenstalk.com/perfumes-based-on-personality-types-that-make-great-gifts/)
+- [da bombs bath bombs](https://beauty.allwomenstalk.com/bath-bombs-that-are-da-bomb/)
+- [how to choose a perfume that suits you](https://perfumes.allwomenstalk.com/tips-for-choosing-a-perfume-thats-right-for-you/)
+- [nest fragrances gift set](https://perfumes.allwomenstalk.com/fragrance-gift-sets-anyone-would-love-to-receive/)
 - [zen scented candles](https://lifestyle.allwomenstalk.com/find-your-zen-with-falls-best-scented-candles/)
 - [chess perfume](https://perfumes.allwomenstalk.com/best-ever-tips-for-wearing-perfume/)
-- [best body lotion scents](https://skincare.allwomenstalk.com/sensuous-fall-inspired-scented-lotions/)
-- [da bombs bath bombs](https://beauty.allwomenstalk.com/bath-bombs-that-are-da-bomb/)
-- [perfume for introverts](https://perfumes.allwomenstalk.com/perfumes-based-on-personality-types-that-make-great-gifts/)
-- [aftershave gift sets](https://perfumes.allwomenstalk.com/after-shave-gift-sets-to-make-your-men-smell-fab/)
-- [nest fragrances gift set](https://perfumes.allwomenstalk.com/fragrance-gift-sets-anyone-would-love-to-receive/)
+- [perfume layering with bath and body works](https://perfumes.allwomenstalk.com/ways-to-layer-your-fragrance/)
 - [7 Summer Perfumes I Adore ...](https://perfumes.allwomenstalk.com/summer-perfumes-i-adore/)
 - [7 Simply Enchanting Classic French Perfumes ...](https://perfumes.allwomenstalk.com/classic-french-perfumes/)
 

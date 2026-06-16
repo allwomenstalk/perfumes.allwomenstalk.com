@@ -36,16 +36,16 @@ Studies have been conducted to show that men tend to associate super fruity flav
 
 ## Related Posts
 
-- [decoded perfumes](https://fashion.allwomenstalk.com/decoding-fragrance-families-and-notes/)
-- [best black orchid clone](https://allwomenstalk.com/best-perfume-clones-2022/)
-- [sensual luxury perfume](https://allwomenstalk.com/luxury-perfumes-to-help-you-exude-sensuality/)
+- [diy body mist](https://perfumes.allwomenstalk.com/diy-vanilla-body-mist/)
 - [aquavir](https://perfumes.allwomenstalk.com/perfect-everyday-perfumes-you-will-love/)
 - [raspberry perfume](https://perfumes.allwomenstalk.com/diy-wild-raspberry-rose-infusion-perfume/)
-- [Coach Fragrance Line & LE Straw Basket with Go...](https://allwomenstalk.com/coach-fragrance-line-le-straw-basket-with-goodies/)
-- [dollarama perfume](https://perfumes.allwomenstalk.com/smell-good-without-breaking-the-bank-with-dollar-store-perfumes/)
-- [diy body mist](https://perfumes.allwomenstalk.com/diy-vanilla-body-mist/)
+- [best black orchid clone](https://allwomenstalk.com/best-perfume-clones-2022/)
 - [solid cologne recipe](https://perfumes.allwomenstalk.com/ingredient-diy-solid-perfume/)
+- [decoded perfumes](https://fashion.allwomenstalk.com/decoding-fragrance-families-and-notes/)
+- [dollarama perfume](https://perfumes.allwomenstalk.com/smell-good-without-breaking-the-bank-with-dollar-store-perfumes/)
+- [Coach Fragrance Line & LE Straw Basket with Go...](https://allwomenstalk.com/coach-fragrance-line-le-straw-basket-with-goodies/)
 - [Trying out the Coach Perfume](https://allwomenstalk.com/trying-out-the-coach-perfume/)
+- [sensual luxury perfume](https://allwomenstalk.com/luxury-perfumes-to-help-you-exude-sensuality/)
 - [7 Interesting Facts about Perfumes ...](https://perfumes.allwomenstalk.com/interesting-facts-about-perfumes/)
 - [Fragrance Tidbits ...](https://allwomenstalk.com/fragrance-tidbits-2/)
 

@@ -56,16 +56,16 @@ These are just a few of the awesome sensual perfumes that are out there! Do you 
 
 ## Related Posts
 
-- [what does amber smell like](https://perfumes.allwomenstalk.com/delicious-awesome-perfumes-that-smell-like-coconut/)
-- [scented bottle](https://perfumes.allwomenstalk.com/awesome-perfumes-with-cool-bottles/)
-- [is rose an aphrodisiac](https://love.allwomenstalk.com/gorgeous-flowers-that-you-didnt-know-were-aphrodisiacs/)
 - [ralph lauren woman perfume discontinued](https://perfumes.allwomenstalk.com/discontinued-perfumes-i-wish-theyd-bring-back/)
+- [what does amber smell like](https://perfumes.allwomenstalk.com/delicious-awesome-perfumes-that-smell-like-coconut/)
+- [designer deodorant](https://skincare.allwomenstalk.com/luxury-deodorants-to-consider/)
+- [famous perfume recipes](https://perfumes.allwomenstalk.com/perfume-recipes-to-follow/)
+- [where to buy perfumes cheap](https://perfumes.allwomenstalk.com/fabulous-ways-to-save-money-on-perfume-to-keep-your-piggy-bank-full/)
 - [perfume that smells like candy](https://perfumes.allwomenstalk.com/fruity-fabulous-perfumes-to-try/)
 - [floral fragrance](https://perfumes.allwomenstalk.com/fantastic-floral-fragrances-for-summer/)
 - [best leather colognes](https://perfumes.allwomenstalk.com/colognes-to-get-your-man/)
-- [where to buy perfumes cheap](https://perfumes.allwomenstalk.com/fabulous-ways-to-save-money-on-perfume-to-keep-your-piggy-bank-full/)
-- [designer deodorant](https://skincare.allwomenstalk.com/luxury-deodorants-to-consider/)
-- [famous perfume recipes](https://perfumes.allwomenstalk.com/perfume-recipes-to-follow/)
+- [scented bottle](https://perfumes.allwomenstalk.com/awesome-perfumes-with-cool-bottles/)
+- [is rose an aphrodisiac](https://love.allwomenstalk.com/gorgeous-flowers-that-you-didnt-know-were-aphrodisiacs/)
 - [7 Strange Perfume Scents ...](https://perfumes.allwomenstalk.com/strange-perfume-scents/)
 - [7 Summer Perfumes I Adore ...](https://perfumes.allwomenstalk.com/summer-perfumes-i-adore/)
 

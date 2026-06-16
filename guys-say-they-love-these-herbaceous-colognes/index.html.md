@@ -139,15 +139,15 @@ Which one do you want to spritz on today?
 
 ## Related Posts
 
-- [preppy perfumes](https://perfumes.allwomenstalk.com/throwback-perfumes-we-wore-back-in-the-90s/)
-- [viktor and rolf flowerbomb rollerball](https://perfumes.allwomenstalk.com/rollerballs-of-your-all-time-favorite-spring-scents/)
 - [light scented women's perfume](https://perfumes.allwomenstalk.com/spring-clean-your-fragrance-collection-with-these-light-and-airy-scents/)
 - [best perfume for college girl](https://perfumes.allwomenstalk.com/how-to-shop-for-a-perfume-you-are-actually-gonna-love-and-use/)
-- [rose scented perfume](https://perfumes.allwomenstalk.com/life-is-a-rose-garden-with-these-scents/)
-- [top natural deodorant for womens](https://skincare.allwomenstalk.com/natural-deodorant-brands-for-women-reducing-their-exposure-to-chemicals/)
+- [john varvatos colognes](https://perfumes.allwomenstalk.com/talk-your-bf-into-wearing-these-sweet-springtime-colognes/)
 - [candles that make your house smell good](https://lifestyle.allwomenstalk.com/candle-scent-combos-thatll-make-your-house-smell-delicious/)
 - [bon bons malizia milk shake](https://perfumes.allwomenstalk.com/juicy-perfumes-for-women-with-a-sweet-tooth/)
-- [john varvatos colognes](https://perfumes.allwomenstalk.com/talk-your-bf-into-wearing-these-sweet-springtime-colognes/)
+- [preppy perfumes](https://perfumes.allwomenstalk.com/throwback-perfumes-we-wore-back-in-the-90s/)
+- [top natural deodorant for womens](https://skincare.allwomenstalk.com/natural-deodorant-brands-for-women-reducing-their-exposure-to-chemicals/)
+- [rose scented perfume](https://perfumes.allwomenstalk.com/life-is-a-rose-garden-with-these-scents/)
+- [viktor and rolf flowerbomb rollerball](https://perfumes.allwomenstalk.com/rollerballs-of-your-all-time-favorite-spring-scents/)
 - [best perfume for workplace](https://perfumes.allwomenstalk.com/low-key-fragrances-that-are-fit-for-the-office/)
 - [8 Brand New Perfumes ...](https://perfumes.allwomenstalk.com/brand-new-perfumes/)
 - [TOM FORD BLACK ORCHID ...](https://allwomenstalk.com/tom-ford-black-orchid/)

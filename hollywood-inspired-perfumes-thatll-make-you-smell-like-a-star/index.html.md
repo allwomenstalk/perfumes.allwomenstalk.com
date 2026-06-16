@@ -150,16 +150,16 @@ What's your favorite scent? Let us know in the comments!
 
 ## Related Posts
 
-- [types of perfumes and fragrance categories](https://perfumes.allwomenstalk.com/perfumes-101-decoding-the-types-of-fragrance/)
 - [how to find your perfect perfume](https://perfumes.allwomenstalk.com/how-do-you-choose-the-correct-perfume-for-you/)
-- [viktor and rolf flowerbomb rollerball](https://perfumes.allwomenstalk.com/rollerballs-of-your-all-time-favorite-spring-scents/)
-- [candles that make your house smell good](https://lifestyle.allwomenstalk.com/candle-scent-combos-thatll-make-your-house-smell-delicious/)
-- [purfume chart](https://perfumes.allwomenstalk.com/this-chart-will-tell-you-which-perfume-fits-your-personality/)
+- [rose scented perfume](https://perfumes.allwomenstalk.com/life-is-a-rose-garden-with-these-scents/)
 - [how to pronounce cologne](https://perfumes.allwomenstalk.com/guys-say-they-love-these-herbaceous-colognes/)
+- [types of perfumes and fragrance categories](https://perfumes.allwomenstalk.com/perfumes-101-decoding-the-types-of-fragrance/)
+- [best dark feminine perfumes](https://perfumes.allwomenstalk.com/feel-like-a-girly-girl-with-these-feminine-perfumes/)
+- [purfume chart](https://perfumes.allwomenstalk.com/this-chart-will-tell-you-which-perfume-fits-your-personality/)
 - [hanae mori butterfly eau de toilette](https://perfumes.allwomenstalk.com/classic-spring-scents-that-beat-all-the-new-stuff/)
 - [valentines perfumes](https://perfumes.allwomenstalk.com/these-floral-perfumes-will-make-him-swoon-on-valentines-day/)
-- [rose scented perfume](https://perfumes.allwomenstalk.com/life-is-a-rose-garden-with-these-scents/)
-- [best dark feminine perfumes](https://perfumes.allwomenstalk.com/feel-like-a-girly-girl-with-these-feminine-perfumes/)
+- [viktor and rolf flowerbomb rollerball](https://perfumes.allwomenstalk.com/rollerballs-of-your-all-time-favorite-spring-scents/)
+- [candles that make your house smell good](https://lifestyle.allwomenstalk.com/candle-scent-combos-thatll-make-your-house-smell-delicious/)
 - [8 Sexy Perfumes to Turn You on ...](https://perfumes.allwomenstalk.com/sexy-perfumes-to-turn-you-on/)
 - [7 New Celebrity Fragrances for 2012 ...](https://perfumes.allwomenstalk.com/new-celebrity-fragrances-for/)
 

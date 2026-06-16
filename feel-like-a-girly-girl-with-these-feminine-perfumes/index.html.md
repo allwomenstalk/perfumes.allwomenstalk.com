@@ -148,16 +148,16 @@ Which one do you want to spritz on today? What others would you add to the list?
 
 ## Related Posts
 
-- [rose scented perfume](https://perfumes.allwomenstalk.com/life-is-a-rose-garden-with-these-scents/)
-- [light scented women's perfume](https://perfumes.allwomenstalk.com/spring-clean-your-fragrance-collection-with-these-light-and-airy-scents/)
-- [best perfume for workplace](https://perfumes.allwomenstalk.com/low-key-fragrances-that-are-fit-for-the-office/)
-- [viktor and rolf flowerbomb rollerball](https://perfumes.allwomenstalk.com/rollerballs-of-your-all-time-favorite-spring-scents/)
-- [john varvatos colognes](https://perfumes.allwomenstalk.com/talk-your-bf-into-wearing-these-sweet-springtime-colognes/)
-- [how to pronounce cologne](https://perfumes.allwomenstalk.com/guys-say-they-love-these-herbaceous-colognes/)
 - [hanae mori butterfly eau de toilette](https://perfumes.allwomenstalk.com/classic-spring-scents-that-beat-all-the-new-stuff/)
-- [preppy perfumes](https://perfumes.allwomenstalk.com/throwback-perfumes-we-wore-back-in-the-90s/)
+- [best perfume for workplace](https://perfumes.allwomenstalk.com/low-key-fragrances-that-are-fit-for-the-office/)
 - [candles that make your house smell good](https://lifestyle.allwomenstalk.com/candle-scent-combos-thatll-make-your-house-smell-delicious/)
+- [viktor and rolf flowerbomb rollerball](https://perfumes.allwomenstalk.com/rollerballs-of-your-all-time-favorite-spring-scents/)
+- [light scented women's perfume](https://perfumes.allwomenstalk.com/spring-clean-your-fragrance-collection-with-these-light-and-airy-scents/)
+- [rose scented perfume](https://perfumes.allwomenstalk.com/life-is-a-rose-garden-with-these-scents/)
 - [purfume chart](https://perfumes.allwomenstalk.com/this-chart-will-tell-you-which-perfume-fits-your-personality/)
+- [how to pronounce cologne](https://perfumes.allwomenstalk.com/guys-say-they-love-these-herbaceous-colognes/)
+- [john varvatos colognes](https://perfumes.allwomenstalk.com/talk-your-bf-into-wearing-these-sweet-springtime-colognes/)
+- [preppy perfumes](https://perfumes.allwomenstalk.com/throwback-perfumes-we-wore-back-in-the-90s/)
 - [Valentines Gifts for Everyone Find the Perfect New...](https://allwomenstalk.com/valentines-gifts-for-everyone-find-the-perfect-new-perfume/)
 - [Feminine Ways to Wear Pink Any Day You Want to ...](https://beauty.allwomenstalk.com/feminine-ways-to-wear-pink-any-day-you-want-to/)
 
