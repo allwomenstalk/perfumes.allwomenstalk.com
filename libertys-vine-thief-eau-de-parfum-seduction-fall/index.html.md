@@ -3,7 +3,7 @@ title: "Liberty’s Vine Thief Eau de Parfum Redefines the Art of Seduction This
 description: "The Legacy – Liberty London’s Signature Rebellion in Scent Form; The Opening – Strawberry Liquor and Orris in Bloom; The Heart – Labdanum, Leather Accord, and Clearwood; The Dry Down – Skin Musk, Vanilla, and Condensed Milk; The Mood – A Garden at Twilight; More ..."
 url: "https://perfumes.allwomenstalk.com/libertys-vine-thief-eau-de-parfum-seduction-fall/"
 category: "perfumes"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # Liberty’s Vine Thief Eau de Parfum Redefines the Art of Seduction This Fall …

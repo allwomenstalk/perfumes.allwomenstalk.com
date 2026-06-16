@@ -3,7 +3,7 @@ title: "17 Throwback Perfumes We Wore Back in the '90s ..."
 description: "GAP Dream & Heaven; Elizabeth Arden Sunflowers; The Body Shop White Musk; Tommy Girl; Vanilla Fields; More ..."
 url: "https://perfumes.allwomenstalk.com/throwback-perfumes-we-wore-back-in-the-90s/"
 category: "perfumes"
-last_updated: "2026-06-13"
+last_updated: "2026-06-16"
 ---
 
 # 17 Throwback Perfumes We Wore Back in the '90s ...
@@ -100,16 +100,16 @@ So, did you wear any of these? Miss any of them?
 
 ## Related Posts
 
-- [perfumes zodiac sign](https://perfumes.allwomenstalk.com/a-signature-perfume-for-every-zodiac-sign-check-out-yours/)
-- [perfumes that smell like the beach](https://perfumes.allwomenstalk.com/perfumes-for-women-who-want-to-smell-like-summer/)
-- [bon bons malizia milk shake](https://perfumes.allwomenstalk.com/juicy-perfumes-for-women-with-a-sweet-tooth/)
-- [portable fragrance bottle](https://perfumes.allwomenstalk.com/brilliant-ways-to-reuse-your-old-perfume-bottles/)
-- [chlor perfume](https://perfumes.allwomenstalk.com/how-to-select-your-signature-fragrance/)
-- [real perfume vs fake](https://perfumes.allwomenstalk.com/real-or-faux-perfume-deciphering-hacks-to-tell-if-its-legit/)
-- [top natural deodorant for womens](https://skincare.allwomenstalk.com/natural-deodorant-brands-for-women-reducing-their-exposure-to-chemicals/)
 - [best perfume for college girl](https://perfumes.allwomenstalk.com/how-to-shop-for-a-perfume-you-are-actually-gonna-love-and-use/)
 - [autumn drive perfume](https://perfumes.allwomenstalk.com/match-your-perfume-to-your-fave-fall-things/)
+- [perfumes that smell like the beach](https://perfumes.allwomenstalk.com/perfumes-for-women-who-want-to-smell-like-summer/)
+- [top natural deodorant for womens](https://skincare.allwomenstalk.com/natural-deodorant-brands-for-women-reducing-their-exposure-to-chemicals/)
+- [chlor perfume](https://perfumes.allwomenstalk.com/how-to-select-your-signature-fragrance/)
+- [portable fragrance bottle](https://perfumes.allwomenstalk.com/brilliant-ways-to-reuse-your-old-perfume-bottles/)
+- [perfumes zodiac sign](https://perfumes.allwomenstalk.com/a-signature-perfume-for-every-zodiac-sign-check-out-yours/)
+- [real perfume vs fake](https://perfumes.allwomenstalk.com/real-or-faux-perfume-deciphering-hacks-to-tell-if-its-legit/)
 - [how to smell nice all day](https://beauty.allwomenstalk.com/how-to-smell-super-fresh-when-its-hot-outside/)
+- [bon bons malizia milk shake](https://perfumes.allwomenstalk.com/juicy-perfumes-for-women-with-a-sweet-tooth/)
 - [7 Strange Perfume Scents ...](https://perfumes.allwomenstalk.com/strange-perfume-scents/)
 - [7 Summer Perfumes I Adore ...](https://perfumes.allwomenstalk.com/summer-perfumes-i-adore/)
 
