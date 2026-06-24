@@ -3,7 +3,7 @@ title: "7 Decadent Perfumes Worn by Famous People ..."
 description: "Marilyn Monroe-Chanel No. 5; Marie Antoinette-Black Jade by Lubin; Elizabeth I-Elizabeth; Grace Kelly-Gin Fizz by Lubin; Michelle Obama-Love in White by Creed; More ..."
 url: "https://perfumes.allwomenstalk.com/decadent-perfumes-worn-by-famous-people/"
 category: "perfumes"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 7 Decadent Perfumes Worn by Famous People ...
@@ -56,16 +56,16 @@ While some of these perfumes can literally make you feel like a queen for the da
 
 ## Related Posts
 
-- [loveswept perfume](https://perfumes.allwomenstalk.com/amazing-fragrances-from-sephora-that-you-will-love/)
+- [perfume notes combination](https://perfumes.allwomenstalk.com/most-attractive-scents-to-men-that-will-bring-them-to-their-knees/)
 - [seema anand ted talk](https://perfumes.allwomenstalk.com/ways-perfumes-make-you-more-seductive/)
-- [flamestop sunshine](https://lifestyle.allwomenstalk.com/of-the-most-delicious-scented-candles-to-make-your-space-smell-sweet/)
 - [best smelling candle for home](https://lifestyle.allwomenstalk.com/best-candle-scents-to-choose-for-your-home/)
 - [halle berry exotic jasmine perfume](https://perfumes.allwomenstalk.com/jasmine-scented-perfumes-that-will-blow-your-mind/)
-- [fun facts about perfumes](https://perfumes.allwomenstalk.com/fun-facts-about-perfume-you-never-wouldve-known/)
-- [floral designer perfumes](https://perfumes.allwomenstalk.com/inexpensive-floral-perfumes-that-are-perfect-as-gifts/)
-- [smelling hair addiction](https://hair.allwomenstalk.com/hairsprays-that-smell-as-good-as-they-work/)
-- [perfume notes combination](https://perfumes.allwomenstalk.com/most-attractive-scents-to-men-that-will-bring-them-to-their-knees/)
 - [seven five seven dazzle perfume](https://perfumes.allwomenstalk.com/of-my-favorite-perfumes-you-should-consider-trying/)
+- [smelling hair addiction](https://hair.allwomenstalk.com/hairsprays-that-smell-as-good-as-they-work/)
+- [floral designer perfumes](https://perfumes.allwomenstalk.com/inexpensive-floral-perfumes-that-are-perfect-as-gifts/)
+- [flamestop sunshine](https://lifestyle.allwomenstalk.com/of-the-most-delicious-scented-candles-to-make-your-space-smell-sweet/)
+- [fun facts about perfumes](https://perfumes.allwomenstalk.com/fun-facts-about-perfume-you-never-wouldve-known/)
+- [loveswept perfume](https://perfumes.allwomenstalk.com/amazing-fragrances-from-sephora-that-you-will-love/)
 - [7 Strange Perfume Scents ...](https://perfumes.allwomenstalk.com/strange-perfume-scents/)
 - [7 Summer Perfumes I Adore ...](https://perfumes.allwomenstalk.com/summer-perfumes-i-adore/)
 

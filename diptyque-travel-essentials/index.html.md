@@ -3,7 +3,7 @@ title: "Where Will Diptyque’s Travel Essentials Take You Next"
 description: "Travel-Sized Wonders: What’s in Your Bag?; Curating a Sensory Escape; Beyond Fragrances: Embarking on Sensual Journeys; A Tale of Whimsy and Wanderlust; More ..."
 url: "https://perfumes.allwomenstalk.com/diptyque-travel-essentials/"
 category: "perfumes"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # Where Will Diptyque’s Travel Essentials Take You Next

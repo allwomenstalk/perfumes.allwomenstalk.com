@@ -3,7 +3,7 @@ title: "4 Yummy Perfumes with a Floral Scent You Will Love for under $30 ..."
 description: "Absolute Parfum; Rare Pearls; Avon Femme Eau De Parfum; Haiku Kyoto Flower Eau De Parfum; More ..."
 url: "https://perfumes.allwomenstalk.com/floral-perfumes-under-30/"
 category: "perfumes"
-last_updated: "2026-06-16"
+last_updated: "2026-06-24"
 ---
 
 # 4 Yummy Perfumes with a Floral Scent You Will Love for under $30 ...
@@ -49,15 +49,15 @@ Bottom Notes: Soft cotton musk
 ## Related Posts
 
 - [which lasts longer perfume or eau de parfum](https://perfumes.allwomenstalk.com/brilliant-ways-to-make-your-perfume-last-longer-in-summer/)
-- [xxl size girls](https://beauty.allwomenstalk.com/ways-for-plus-size-girls-to-stop-body-odor/)
-- [diy body mist](https://perfumes.allwomenstalk.com/diy-vanilla-body-mist/)
 - [best selling fragrances in the world](https://perfumes.allwomenstalk.com/the-most-popular-perfumes-around-the-world/)
-- [raspberry perfume](https://perfumes.allwomenstalk.com/diy-wild-raspberry-rose-infusion-perfume/)
-- [jo malone orange bitters](https://perfumes.allwomenstalk.com/did-you-know-that-perfume-can-age-you/)
+- [xxl size girls](https://beauty.allwomenstalk.com/ways-for-plus-size-girls-to-stop-body-odor/)
 - [solid cologne recipe](https://perfumes.allwomenstalk.com/ingredient-diy-solid-perfume/)
-- [fragrance love types](https://perfumes.allwomenstalk.com/signs-you-love-perfume/)
-- [what perfume do guys like](https://perfumes.allwomenstalk.com/the-perfume-scents-that-turn-men-off/)
+- [diy body mist](https://perfumes.allwomenstalk.com/diy-vanilla-body-mist/)
+- [jo malone orange bitters](https://perfumes.allwomenstalk.com/did-you-know-that-perfume-can-age-you/)
 - [glossier you perfume amazon](https://perfumes.allwomenstalk.com/gender-neutral-fragrances-youll-both-love/)
+- [fragrance love types](https://perfumes.allwomenstalk.com/signs-you-love-perfume/)
+- [raspberry perfume](https://perfumes.allwomenstalk.com/diy-wild-raspberry-rose-infusion-perfume/)
+- [what perfume do guys like](https://perfumes.allwomenstalk.com/the-perfume-scents-that-turn-men-off/)
 - [8 Fresh Summer Fragrances ...](https://perfumes.allwomenstalk.com/8-fresh-summer-fragrances/)
 - [7 Deliciously Warm Floral Perfumes That Are Just P...](https://perfumes.allwomenstalk.com/deliciously-warm-floral-perfumes-that-are-just-perfect-for-winter/)
 
