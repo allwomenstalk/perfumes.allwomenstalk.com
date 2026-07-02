@@ -3,7 +3,7 @@ title: "The Zodiac Gift Guide - 6 Carriere Freres Scents for Every Star Sign ...
 description: "YUZU — For Gemini & Sagittarius; LA ROSE AIME LA MENTHE — For Taurus & Libra; FRANGIPANI — For Cancer & Pisces; SPEARMINT — For Aries & Leo; SIRACUSA LEMON — For Virgo & Capricorn; More ..."
 url: "https://perfumes.allwomenstalk.com/zodiac-gift-guide-6-carriere-freres-scents-every-star-sign/"
 category: "perfumes"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # The Zodiac Gift Guide \- 6 Carriere Freres Scents for Every Star Sign ...

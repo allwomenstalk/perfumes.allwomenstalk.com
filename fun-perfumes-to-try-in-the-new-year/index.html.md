@@ -3,7 +3,7 @@ title: "7 Fun Perfumes to Try in the New Year ..."
 description: "Marc Jacobs Dot; Viktor & Rolf Flowerbomb Hair Mist; Philosophy Field of Flowers in Violet Blossom; Origins Ginger Essence Intensified Fragrance Spray; Aromachology Clean & Fresh; More ..."
 url: "https://perfumes.allwomenstalk.com/fun-perfumes-to-try-in-the-new-year/"
 category: "perfumes"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # 7 Fun Perfumes to Try in the New Year ...
@@ -56,16 +56,16 @@ I hope you found a new perfume you want to try! There are oodles of great fragra
 
 ## Related Posts
 
+- [best floral perfumes of all time](https://perfumes.allwomenstalk.com/floral-scented-perfumes-to-try/)
 - [9 Useful Essential Oils to Help Keep Pesky Insects...](https://lifestyle.allwomenstalk.com/useful-essential-oils-to-help-keep-pesky-insects-away/)
-- [list of french perfumes](https://perfumes.allwomenstalk.com/french-women-perfumes-to-try/)
 - [l'occitane cherry blossom solid perfume](https://perfumes.allwomenstalk.com/solid-perfumes-to-try/)
+- [list of french perfumes](https://perfumes.allwomenstalk.com/french-women-perfumes-to-try/)
+- [8 Amazing Fresh Summer Scents You Need to Try ...](https://perfumes.allwomenstalk.com/fresh-summer-scents-to-try/)
+- [7 Aromatherapy Products to Keep You Healthy and Ha...](https://health.allwomenstalk.com/aromatherapy-products-to-keep-you-healthy-and-happy/)
+- [best spring scents](https://perfumes.allwomenstalk.com/marvelous-spring-scents-to-try/)
 - [7 Sweet Perfumes to Wear for Your Wedding ...](https://perfumes.allwomenstalk.com/sweet-perfumes-to-wear-for-your-wedding/)
 - [7 Vera Wang Perfumes That I Love ...](https://perfumes.allwomenstalk.com/vera-wang-perfumes-that-i-love/)
 - [7 Smells That Should Be Bottled up and Sold ...](https://perfumes.allwomenstalk.com/smells-that-should-be-bottled-up-and-sold/)
-- [7 Aromatherapy Products to Keep You Healthy and Ha...](https://health.allwomenstalk.com/aromatherapy-products-to-keep-you-healthy-and-happy/)
-- [8 Amazing Fresh Summer Scents You Need to Try ...](https://perfumes.allwomenstalk.com/fresh-summer-scents-to-try/)
-- [best floral perfumes of all time](https://perfumes.allwomenstalk.com/floral-scented-perfumes-to-try/)
-- [best spring scents](https://perfumes.allwomenstalk.com/marvelous-spring-scents-to-try/)
 - [7 Strange Perfume Scents ...](https://perfumes.allwomenstalk.com/strange-perfume-scents/)
 - [7 Summer Perfumes I Adore ...](https://perfumes.allwomenstalk.com/summer-perfumes-i-adore/)
 

@@ -3,7 +3,7 @@ title: "Why Diptyque's Objects of Ceremony Are a Must-See..."
 description: "The Art of Candle Lighting with Diptyque's Holder; The Perfect Match: Diptyque's Limited-Edition Matchbox; Creating a Diptyque Legacy in Your Home; Embrace the Diptyque Experience; More ..."
 url: "https://perfumes.allwomenstalk.com/diptyque-objects-ceremony/"
 category: "perfumes"
-last_updated: "2026-06-24"
+last_updated: "2026-07-02"
 ---
 
 # Why Diptyque's Objects of Ceremony Are a Must\-See...
