@@ -3,7 +3,7 @@ title: "7 New Celebrity Fragrances for 2012 ..."
 description: "Madonna - Truth or Dare; Intimately Beckham; Katy Perry – Purr; Rihanna Reb'l Fleur; Beyonce, Pulse Summer Edition; More ..."
 url: "https://perfumes.allwomenstalk.com/new-celebrity-fragrances-for/"
 category: "perfumes"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # 7 New Celebrity Fragrances for 2012 ...
@@ -68,16 +68,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/1147017402045788
 
 ## Related Posts
 
-- [best sweet smelling perfume for ladies](https://perfumes.allwomenstalk.com/innocent-sweet-perfumes-to-try/)
-- [juicy couture perfumes list](https://perfumes.allwomenstalk.com/awesome-perfumes-for-teenagers/)
-- [best cheap date night fragrances](https://perfumes.allwomenstalk.com/best-date-night-perfumes/)
-- [celebrity fragrance](https://perfumes.allwomenstalk.com/best-celebrity-perfumes-youve-got-to-try/)
-- [tiffany perfume discontinued](https://perfumes.allwomenstalk.com/splendid-perfumes-that-drive-men-crazy/)
-- [spicy oriental perfumes](https://perfumes.allwomenstalk.com/hot-spicy-perfumes-to-test-out/)
-- [jessica mclintock perfume](https://perfumes.allwomenstalk.com/perfumes-to-try-in/)
-- [classic fudge cake shampoo](https://beauty.allwomenstalk.com/beauty-products-that-smell-amazing/)
-- [what perfume do guys like most](https://perfumes.allwomenstalk.com/top-perfumes-that-men-love/)
 - [essential oils to reduce stress](https://lifestyle.allwomenstalk.com/best-essential-oils-for-a-stress-free-life/)
+- [best sweet smelling perfume for ladies](https://perfumes.allwomenstalk.com/innocent-sweet-perfumes-to-try/)
+- [classic fudge cake shampoo](https://beauty.allwomenstalk.com/beauty-products-that-smell-amazing/)
+- [jessica mclintock perfume](https://perfumes.allwomenstalk.com/perfumes-to-try-in/)
+- [spicy oriental perfumes](https://perfumes.allwomenstalk.com/hot-spicy-perfumes-to-test-out/)
+- [celebrity fragrance](https://perfumes.allwomenstalk.com/best-celebrity-perfumes-youve-got-to-try/)
+- [best cheap date night fragrances](https://perfumes.allwomenstalk.com/best-date-night-perfumes/)
+- [tiffany perfume discontinued](https://perfumes.allwomenstalk.com/splendid-perfumes-that-drive-men-crazy/)
+- [juicy couture perfumes list](https://perfumes.allwomenstalk.com/awesome-perfumes-for-teenagers/)
+- [what perfume do guys like most](https://perfumes.allwomenstalk.com/top-perfumes-that-men-love/)
 - [7 Scintillating New Scents for Spring ...](https://perfumes.allwomenstalk.com/7-scintillating-new-scents-for-spring/)
 - [7 Strange Perfume Scents ...](https://perfumes.allwomenstalk.com/strange-perfume-scents/)
 

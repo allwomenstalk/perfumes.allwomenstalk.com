@@ -3,7 +3,7 @@ title: "The Story Behind Liberty London’s LBTY Fragrance Collection That You N
 description: "The Art of Scent: Crafted with Passion; Soy & Coconut Wax:; A Symphony of Scents: More than Just a Candle; Prices & Availability:; Elevating Your Space: Perfect Gifts for Spring; More ..."
 url: "https://perfumes.allwomenstalk.com/luxury-fragrances-liberty-london/"
 category: "perfumes"
-last_updated: "2026-07-21"
+last_updated: "2026-07-24"
 ---
 
 # The Story Behind Liberty London’s LBTY Fragrance Collection That You Need to Hear
