@@ -3,7 +3,7 @@ title: "3 Ingredient DIY Solid Perfume ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://perfumes.allwomenstalk.com/ingredient-diy-solid-perfume/"
 category: "perfumes"
-last_updated: "2026-07-24"
+last_updated: "2026-07-31"
 ---
 
 # 3 Ingredient DIY Solid Perfume ...
@@ -22,14 +22,14 @@ Good luck!
 
 ## Related Posts
 
-- [Amour Fragrance, by Kenzo](https://allwomenstalk.com/amour-fragrance-by-kenzo/)
-- [Coach Fragrance Line & LE Straw Basket with Go...](https://allwomenstalk.com/coach-fragrance-line-le-straw-basket-with-goodies/)
-- [dollarama perfume](https://perfumes.allwomenstalk.com/smell-good-without-breaking-the-bank-with-dollar-store-perfumes/)
+- [raspberry perfume](https://perfumes.allwomenstalk.com/diy-wild-raspberry-rose-infusion-perfume/)
 - [diy body mist](https://perfumes.allwomenstalk.com/diy-vanilla-body-mist/)
+- [Amour Fragrance, by Kenzo](https://allwomenstalk.com/amour-fragrance-by-kenzo/)
+- [aquavir](https://perfumes.allwomenstalk.com/perfect-everyday-perfumes-you-will-love/)
+- [dollarama perfume](https://perfumes.allwomenstalk.com/smell-good-without-breaking-the-bank-with-dollar-store-perfumes/)
 - [decoded perfumes](https://fashion.allwomenstalk.com/decoding-fragrance-families-and-notes/)
 - [sensual luxury perfume](https://allwomenstalk.com/luxury-perfumes-to-help-you-exude-sensuality/)
-- [raspberry perfume](https://perfumes.allwomenstalk.com/diy-wild-raspberry-rose-infusion-perfume/)
-- [aquavir](https://perfumes.allwomenstalk.com/perfect-everyday-perfumes-you-will-love/)
+- [Coach Fragrance Line & LE Straw Basket with Go...](https://allwomenstalk.com/coach-fragrance-line-le-straw-basket-with-goodies/)
 - [best black orchid clone](https://allwomenstalk.com/best-perfume-clones-2022/)
 - [Trying out the Coach Perfume](https://allwomenstalk.com/trying-out-the-coach-perfume/)
 - [Fragrance Tidbits ...](https://allwomenstalk.com/fragrance-tidbits-2/)
