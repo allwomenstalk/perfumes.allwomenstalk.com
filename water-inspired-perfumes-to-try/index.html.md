@@ -62,16 +62,16 @@ So girls, if you've been dying for perfumes that are not only water-inspired but
 
 ## Related Posts
 
-- [how to make your own perfume](https://perfumes.allwomenstalk.com/steps-to-making-your-own-perfume/)
 - [best lush perfume](https://perfumes.allwomenstalk.com/all-natural-lush-perfumes/)
+- [perfume that looks like a can](https://perfumes.allwomenstalk.com/deliciously-sweet-perfumes-that-smell-like-candy/)
+- [punk perfume](https://perfumes.allwomenstalk.com/punk-rock-perfumes-to-try/)
 - [classic givenchy perfume](https://perfumes.allwomenstalk.com/classic-perfumes-that-still-rock/)
 - [mandarin sky cologne review](https://perfumes.allwomenstalk.com/fab-perfumes-for-women-in-their-20s/)
-- [find a similar perfume](https://perfumes.allwomenstalk.com/awesome-perfumes-that-smell-like-soap/)
-- [perfumes for mothers](https://perfumes.allwomenstalk.com/perfumes-for-your-mom-for-mothers-day/)
-- [punk perfume](https://perfumes.allwomenstalk.com/punk-rock-perfumes-to-try/)
-- [perfume that looks like a can](https://perfumes.allwomenstalk.com/deliciously-sweet-perfumes-that-smell-like-candy/)
-- [ladies perfume in qatar](https://perfumes.allwomenstalk.com/seductive-perfumes-that-you-should-try/)
 - [inexpensive perfumes](https://perfumes.allwomenstalk.com/inexpensive-perfumes-that-smell-amazing/)
+- [ladies perfume in qatar](https://perfumes.allwomenstalk.com/seductive-perfumes-that-you-should-try/)
+- [perfumes for mothers](https://perfumes.allwomenstalk.com/perfumes-for-your-mom-for-mothers-day/)
+- [how to make your own perfume](https://perfumes.allwomenstalk.com/steps-to-making-your-own-perfume/)
+- [find a similar perfume](https://perfumes.allwomenstalk.com/awesome-perfumes-that-smell-like-soap/)
 - [8 Fresh Summer Fragrances ...](https://perfumes.allwomenstalk.com/8-fresh-summer-fragrances/)
 - [8 Sexy Perfumes for Winter ...](https://perfumes.allwomenstalk.com/sexy-perfumes-for-winter/)
 

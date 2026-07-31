@@ -56,16 +56,16 @@ If you too love Chanel No 5 treat yourself - [sephora.com](http://www.sephora.co
 
 ## Related Posts
 
-- [facts that make you sound smart](https://lifestyle.allwomenstalk.com/these-amazing-facts-will-make-you-smarter/)
-- [plastic attitude](https://lifestyle.allwomenstalk.com/facts-about-the-impact-of-plastic-on-the-environment-that-will-change-your-attitude/)
-- [origin okay](https://lifestyle.allwomenstalk.com/facts-about-the-origin-of-the-phrase-okay/)
 - [facts about eating chocolate](https://food.allwomenstalk.com/fascinating-facts-about-chocolate-you-probably-never-knew-before/)
-- [Did You Know Your Christmas Glitter Kills Fishes? ...](https://lifestyle.allwomenstalk.com/did-you-know-your-christmas-glitter-kills-fishes/)
-- [is sam heughan a red head](https://celebs.allwomenstalk.com/facts-about-sam-heughan/)
-- [how tall is aidan turner](https://celebs.allwomenstalk.com/facts-about-aidan-turner/)
 - [caitriona balfe beauty secrets](https://celebs.allwomenstalk.com/facts-about-caitriona-balfe/)
-- [fashion interesting facts](https://fashion.allwomenstalk.com/interesting-facts-about-high-fashion-many-dont-know/)
+- [how tall is aidan turner](https://celebs.allwomenstalk.com/facts-about-aidan-turner/)
 - [chiclephobia pronunciation](https://lifestyle.allwomenstalk.com/craziest-phobias-you-will-not-believe-exist/)
+- [plastic attitude](https://lifestyle.allwomenstalk.com/facts-about-the-impact-of-plastic-on-the-environment-that-will-change-your-attitude/)
+- [fashion interesting facts](https://fashion.allwomenstalk.com/interesting-facts-about-high-fashion-many-dont-know/)
+- [is sam heughan a red head](https://celebs.allwomenstalk.com/facts-about-sam-heughan/)
+- [origin okay](https://lifestyle.allwomenstalk.com/facts-about-the-origin-of-the-phrase-okay/)
+- [Did You Know Your Christmas Glitter Kills Fishes? ...](https://lifestyle.allwomenstalk.com/did-you-know-your-christmas-glitter-kills-fishes/)
+- [facts that make you sound smart](https://lifestyle.allwomenstalk.com/these-amazing-facts-will-make-you-smarter/)
 - [7 Great Lotions Every Woman Needs in Her Cabinet ....](https://skincare.allwomenstalk.com/7-great-lotions/)
 - [7 Interesting Facts about Perfumes ...](https://perfumes.allwomenstalk.com/interesting-facts-about-perfumes/)
 

@@ -82,16 +82,16 @@ This article was written in collaboration with editor Lisa Washington.
 
 ## Related Posts
 
-- [floral designer perfumes](https://perfumes.allwomenstalk.com/inexpensive-floral-perfumes-that-are-perfect-as-gifts/)
-- [vanilla perfume drugstore](https://perfumes.allwomenstalk.com/sweet-vanilla-fragrances-that-are-completely-affordable/)
-- [halle berry exotic jasmine perfume](https://perfumes.allwomenstalk.com/jasmine-scented-perfumes-that-will-blow-your-mind/)
-- [loveswept perfume](https://perfumes.allwomenstalk.com/amazing-fragrances-from-sephora-that-you-will-love/)
-- [seema anand ted talk](https://perfumes.allwomenstalk.com/ways-perfumes-make-you-more-seductive/)
-- [flamestop sunshine](https://lifestyle.allwomenstalk.com/of-the-most-delicious-scented-candles-to-make-your-space-smell-sweet/)
-- [timeless perfume scents](https://perfumes.allwomenstalk.com/timeless-perfumes-youll-love/)
-- [best smelling candle for home](https://lifestyle.allwomenstalk.com/best-candle-scents-to-choose-for-your-home/)
 - [fun facts about perfumes](https://perfumes.allwomenstalk.com/fun-facts-about-perfume-you-never-wouldve-known/)
 - [smelling hair addiction](https://hair.allwomenstalk.com/hairsprays-that-smell-as-good-as-they-work/)
+- [timeless perfume scents](https://perfumes.allwomenstalk.com/timeless-perfumes-youll-love/)
+- [best smelling candle for home](https://lifestyle.allwomenstalk.com/best-candle-scents-to-choose-for-your-home/)
+- [loveswept perfume](https://perfumes.allwomenstalk.com/amazing-fragrances-from-sephora-that-you-will-love/)
+- [flamestop sunshine](https://lifestyle.allwomenstalk.com/of-the-most-delicious-scented-candles-to-make-your-space-smell-sweet/)
+- [halle berry exotic jasmine perfume](https://perfumes.allwomenstalk.com/jasmine-scented-perfumes-that-will-blow-your-mind/)
+- [floral designer perfumes](https://perfumes.allwomenstalk.com/inexpensive-floral-perfumes-that-are-perfect-as-gifts/)
+- [vanilla perfume drugstore](https://perfumes.allwomenstalk.com/sweet-vanilla-fragrances-that-are-completely-affordable/)
+- [seema anand ted talk](https://perfumes.allwomenstalk.com/ways-perfumes-make-you-more-seductive/)
 - [7 New Perfumes for Men ...](https://perfumes.allwomenstalk.com/new-perfumes-for-men/)
 - [9 Sublime Fragrances for Father's Day He'll Fall i...](https://gifts.allwomenstalk.com/great-fragrances-for-fathers-day/)
 

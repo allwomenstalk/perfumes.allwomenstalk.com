@@ -54,16 +54,16 @@ Which are your favorite scents? I ask in the plural because it’s likely you ha
 
 ## Related Posts
 
-- [Here's How to Better Your Mood with These Smells ....](https://health.allwomenstalk.com/heres-how-to-better-your-mood-with-these-smells/)
-- [Essential Oils to Place on Your Nightstand ...](https://beauty.allwomenstalk.com/essential-oils-to-place-on-your-nightstand/)
-- [how to smell good while working out](https://running.allwomenstalk.com/heres-how-to-smell-fresh-after-a-run/)
-- [9 Scents That'll Take You on a Trip through Perfum...](https://perfumes.allwomenstalk.com/scents-thatll-take-you-on-a-trip-through-perfume-history/)
-- [perfume ads video](https://perfumes.allwomenstalk.com/perfume-ads-thatll-make-you-want-to-spritz-on-a-scent/)
-- [Woodland Fragrances to Buy before Fall's End ...](https://perfumes.allwomenstalk.com/woodland-fragrances-to-buy-before-falls-end/)
-- [what to do with unwanted perfume](https://perfumes.allwomenstalk.com/crafty-ways-to-reuse-your-old-perfume/)
 - [What do They do? the ABCs of 19 Awesome Essential ...](https://health.allwomenstalk.com/what-do-they-do-the-abcs-of-awesome-essential-oils/)
+- [Essential Oils to Place on Your Nightstand ...](https://beauty.allwomenstalk.com/essential-oils-to-place-on-your-nightstand/)
 - [7 Holiday Candles to Keep Your House Smelling Fest...](https://perfumes.allwomenstalk.com/holiday-candles-to-keep-your-house-smelling-festive/)
+- [9 Scents That'll Take You on a Trip through Perfum...](https://perfumes.allwomenstalk.com/scents-thatll-take-you-on-a-trip-through-perfume-history/)
 - [will perfume keep mosquitoes away](https://perfumes.allwomenstalk.com/the-delicious-fragrance-thatll-keep-mosquitos-away/)
+- [Woodland Fragrances to Buy before Fall's End ...](https://perfumes.allwomenstalk.com/woodland-fragrances-to-buy-before-falls-end/)
+- [perfume ads video](https://perfumes.allwomenstalk.com/perfume-ads-thatll-make-you-want-to-spritz-on-a-scent/)
+- [Here's How to Better Your Mood with These Smells ....](https://health.allwomenstalk.com/heres-how-to-better-your-mood-with-these-smells/)
+- [what to do with unwanted perfume](https://perfumes.allwomenstalk.com/crafty-ways-to-reuse-your-old-perfume/)
+- [how to smell good while working out](https://running.allwomenstalk.com/heres-how-to-smell-fresh-after-a-run/)
 - [Fragrance Tidbits ...](https://allwomenstalk.com/fragrance-tidbits-2/)
 - [Personal Scent](https://allwomenstalk.com/personal-scent/)
 

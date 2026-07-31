@@ -56,16 +56,16 @@ I love apple fragrance in all forms. From Macintosh candles, to green apple dish
 
 ## Related Posts
 
+- [perfume crystal bottle](https://perfumes.allwomenstalk.com/gorgeous-vintage-perfume-bottles-youll-lust-after/)
+- [book on perfume](https://books.allwomenstalk.com/beautiful-books-about-fragrances/)
 - [most luxurious bar soap](https://skincare.allwomenstalk.com/seriously-luxurious-bar-soaps-thatll-make-you-throw-out-your-body-wash/)
 - [yankee candle beads](https://lifestyle.allwomenstalk.com/scent-sational-candle-fragrances-from-yankee-candle-that-will-make-your-home-smell-inviting/)
-- [zen scented candles](https://lifestyle.allwomenstalk.com/find-your-zen-with-falls-best-scented-candles/)
-- [best body lotion scents](https://skincare.allwomenstalk.com/sensuous-fall-inspired-scented-lotions/)
-- [virtual perfume](https://apps.allwomenstalk.com/fragrant-apps-for-perfume-lovers/)
-- [can i use essential oils as perfume](https://perfumes.allwomenstalk.com/essential-oils-that-you-can-use-as-perfume/)
-- [perfume crystal bottle](https://perfumes.allwomenstalk.com/gorgeous-vintage-perfume-bottles-youll-lust-after/)
 - [coach floral rollerball](https://perfumes.allwomenstalk.com/fragrant-rollerball-perfumes-you-should-try/)
 - [amazing scents](https://perfumes.allwomenstalk.com/amazing-scents-that-most-women-cant-resist/)
-- [book on perfume](https://books.allwomenstalk.com/beautiful-books-about-fragrances/)
+- [zen scented candles](https://lifestyle.allwomenstalk.com/find-your-zen-with-falls-best-scented-candles/)
+- [best body lotion scents](https://skincare.allwomenstalk.com/sensuous-fall-inspired-scented-lotions/)
+- [can i use essential oils as perfume](https://perfumes.allwomenstalk.com/essential-oils-that-you-can-use-as-perfume/)
+- [virtual perfume](https://apps.allwomenstalk.com/fragrant-apps-for-perfume-lovers/)
 - [7 Scintillating New Scents for Spring ...](https://perfumes.allwomenstalk.com/7-scintillating-new-scents-for-spring/)
 - [7 Strange Perfume Scents ...](https://perfumes.allwomenstalk.com/strange-perfume-scents/)
 

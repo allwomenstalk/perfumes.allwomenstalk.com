@@ -42,16 +42,16 @@ So gals, these are just a couple of the different ways that I've discovered how 
 
 ## Related Posts
 
-- [perfume by celebrities](https://perfumes.allwomenstalk.com/amazing-perfumes-that-celebrities-are-wearing-these-days/)
-- [is rose an aphrodisiac](https://love.allwomenstalk.com/gorgeous-flowers-that-you-didnt-know-were-aphrodisiacs/)
-- [victoria's secret best selling mist](https://perfumes.allwomenstalk.com/amazing-smelling-body-mists-to-try/)
-- [celebrity perfumes](https://perfumes.allwomenstalk.com/irresistible-celebrity-perfumes/)
-- [perfumes for mature ladies](https://perfumes.allwomenstalk.com/fab-mature-scents-for-our-fab-mature-readers-to-try/)
-- [strong long lasting perfumes](https://perfumes.allwomenstalk.com/quirky-long-lasting-perfumes-to-try/)
-- [lol perfume](https://perfumes.allwomenstalk.com/fragrances-that-are-great-candidates-for-your-first-perfume/)
-- [best fragrance for house](https://lifestyle.allwomenstalk.com/top-home-fragrances-thatll-transform-your-house/)
 - [best body mist from bath and body works](https://perfumes.allwomenstalk.com/fall-body-mists-youve-got-to-try/)
+- [strong long lasting perfumes](https://perfumes.allwomenstalk.com/quirky-long-lasting-perfumes-to-try/)
+- [perfume by celebrities](https://perfumes.allwomenstalk.com/amazing-perfumes-that-celebrities-are-wearing-these-days/)
+- [perfumes for mature ladies](https://perfumes.allwomenstalk.com/fab-mature-scents-for-our-fab-mature-readers-to-try/)
 - [woodland perfume](https://perfumes.allwomenstalk.com/homemade-perfumes-that-are-completely-natural-and-smell-amazing/)
+- [victoria's secret best selling mist](https://perfumes.allwomenstalk.com/amazing-smelling-body-mists-to-try/)
+- [best fragrance for house](https://lifestyle.allwomenstalk.com/top-home-fragrances-thatll-transform-your-house/)
+- [celebrity perfumes](https://perfumes.allwomenstalk.com/irresistible-celebrity-perfumes/)
+- [lol perfume](https://perfumes.allwomenstalk.com/fragrances-that-are-great-candidates-for-your-first-perfume/)
+- [is rose an aphrodisiac](https://love.allwomenstalk.com/gorgeous-flowers-that-you-didnt-know-were-aphrodisiacs/)
 - [7 Alternatives to Retail Perfumes ...](https://perfumes.allwomenstalk.com/alternatives-to-retail-perfumes/)
 - [7 Ways to the Best Perfume for You ...](https://perfumes.allwomenstalk.com/ways-to-the-best-perfume-for-you/)
 

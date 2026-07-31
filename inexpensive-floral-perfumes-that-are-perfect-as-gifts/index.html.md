@@ -58,14 +58,14 @@ I don't blame you if you test these amazing perfumes and end up falling head ove
 
 - [vanilla perfume drugstore](https://perfumes.allwomenstalk.com/sweet-vanilla-fragrances-that-are-completely-affordable/)
 - [halle berry exotic jasmine perfume](https://perfumes.allwomenstalk.com/jasmine-scented-perfumes-that-will-blow-your-mind/)
-- [scents that are aphrodisiacs](https://perfumes.allwomenstalk.com/sensual-perfume-scents-that-are-aphrodisiacs/)
 - [timeless perfume scents](https://perfumes.allwomenstalk.com/timeless-perfumes-youll-love/)
-- [maison de paris perfume](https://perfumes.allwomenstalk.com/paris-inspired-perfumes-that-will-make-you-go-ooh-la-la/)
 - [smelling hair addiction](https://hair.allwomenstalk.com/hairsprays-that-smell-as-good-as-they-work/)
+- [scents that are aphrodisiacs](https://perfumes.allwomenstalk.com/sensual-perfume-scents-that-are-aphrodisiacs/)
+- [oriental women's eau de toilette fragrances](https://perfumes.allwomenstalk.com/sensual-oriental-scents-youll-love/)
 - [products to smell good](https://perfumes.allwomenstalk.com/non-toxic-products-that-will-make-you-smell-good/)
 - [loveswept perfume](https://perfumes.allwomenstalk.com/amazing-fragrances-from-sephora-that-you-will-love/)
+- [maison de paris perfume](https://perfumes.allwomenstalk.com/paris-inspired-perfumes-that-will-make-you-go-ooh-la-la/)
 - [no 1 perfume](https://perfumes.allwomenstalk.com/best-single-note-perfumes-and-why-you-should-be-wearing-them/)
-- [oriental women's eau de toilette fragrances](https://perfumes.allwomenstalk.com/sensual-oriental-scents-youll-love/)
 - [7 Kinds of Enchantingly Beautiful Flowers to Make ...](https://love.allwomenstalk.com/kinds-of-enchantingly-beautiful-flowers-to-make-her-heart-melt/)
 - [7 Simple Yet Special Gift Ideas That Say "I Love Y...](https://love.allwomenstalk.com/simple-yet-special-gift-ideas-that-say-i-love-you/)
 
