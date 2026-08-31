@@ -3,7 +3,7 @@ title: "OUAI’s New Hair & Body Fragrance Mists Are Your Next Great Sensory Esc
 description: "Ibiza: The Mist for Women Who Want More Than Just a Good Time; What’s inside this little sunset-to-sunrise miracle?; It smells like:; How to use it; Formula perks; More ..."
 url: "https://perfumes.allwomenstalk.com/ouai-new-hair-body-fragrance-mists-sensory-escape/"
 category: "beauty"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # OUAI’s New Hair & Body Fragrance Mists Are Your Next Great Sensory Escape

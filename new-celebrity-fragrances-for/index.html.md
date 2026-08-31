@@ -3,7 +3,7 @@ title: "7 New Celebrity Fragrances for 2012 ..."
 description: "Madonna - Truth or Dare; Intimately Beckham; Katy Perry – Purr; Rihanna Reb'l Fleur; Beyonce, Pulse Summer Edition; More ..."
 url: "https://perfumes.allwomenstalk.com/new-celebrity-fragrances-for/"
 category: "perfumes"
-last_updated: "2026-08-11"
+last_updated: "2026-08-31"
 ---
 
 # 7 New Celebrity Fragrances for 2012 ...
@@ -68,16 +68,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/1147017402045788
 
 ## Related Posts
 
-- [juicy couture perfumes list](https://perfumes.allwomenstalk.com/awesome-perfumes-for-teenagers/)
-- [classic fudge cake shampoo](https://beauty.allwomenstalk.com/beauty-products-that-smell-amazing/)
-- [tiffany perfume discontinued](https://perfumes.allwomenstalk.com/splendid-perfumes-that-drive-men-crazy/)
-- [best sweet smelling perfume for ladies](https://perfumes.allwomenstalk.com/innocent-sweet-perfumes-to-try/)
-- [what perfume do guys like most](https://perfumes.allwomenstalk.com/top-perfumes-that-men-love/)
-- [jessica mclintock perfume](https://perfumes.allwomenstalk.com/perfumes-to-try-in/)
 - [best cheap date night fragrances](https://perfumes.allwomenstalk.com/best-date-night-perfumes/)
-- [spicy oriental perfumes](https://perfumes.allwomenstalk.com/hot-spicy-perfumes-to-test-out/)
-- [celebrity fragrance](https://perfumes.allwomenstalk.com/best-celebrity-perfumes-youve-got-to-try/)
 - [essential oils to reduce stress](https://lifestyle.allwomenstalk.com/best-essential-oils-for-a-stress-free-life/)
+- [juicy couture perfumes list](https://perfumes.allwomenstalk.com/awesome-perfumes-for-teenagers/)
+- [best sweet smelling perfume for ladies](https://perfumes.allwomenstalk.com/innocent-sweet-perfumes-to-try/)
+- [classic fudge cake shampoo](https://beauty.allwomenstalk.com/beauty-products-that-smell-amazing/)
+- [celebrity fragrance](https://perfumes.allwomenstalk.com/best-celebrity-perfumes-youve-got-to-try/)
+- [tiffany perfume discontinued](https://perfumes.allwomenstalk.com/splendid-perfumes-that-drive-men-crazy/)
+- [jessica mclintock perfume](https://perfumes.allwomenstalk.com/perfumes-to-try-in/)
+- [what perfume do guys like most](https://perfumes.allwomenstalk.com/top-perfumes-that-men-love/)
+- [spicy oriental perfumes](https://perfumes.allwomenstalk.com/hot-spicy-perfumes-to-test-out/)
 - [7 Scintillating New Scents for Spring ...](https://perfumes.allwomenstalk.com/7-scintillating-new-scents-for-spring/)
 - [7 Strange Perfume Scents ...](https://perfumes.allwomenstalk.com/strange-perfume-scents/)
 
