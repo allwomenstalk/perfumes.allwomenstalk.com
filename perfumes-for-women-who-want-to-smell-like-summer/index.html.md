@@ -92,16 +92,16 @@ What fragrances smell like summer to you? Let us know in the comments!
 
 ## Related Posts
 
-- [autumn drive perfume](https://perfumes.allwomenstalk.com/match-your-perfume-to-your-fave-fall-things/)
-- [donna karan liquid cashmere aqua](https://perfumes.allwomenstalk.com/the-greatest-perfumes-to-help-you-smell-your-best-all-summer/)
-- [favourite fragrance](https://perfumes.allwomenstalk.com/what-your-favorite-fragrance-says-about-you/)
 - [how to smell nice all day](https://beauty.allwomenstalk.com/how-to-smell-super-fresh-when-its-hot-outside/)
-- [strong long lasting female perfumes](https://perfumes.allwomenstalk.com/best-long-lasting-perfumes-for-her-that-smell-amazing/)
-- [what perfume is an aphrodisiac](https://perfumes.allwomenstalk.com/aphrodisiac-perfumes-for-women-who-want-to-drive-him-crazy/)
-- [perfumes zodiac sign](https://perfumes.allwomenstalk.com/a-signature-perfume-for-every-zodiac-sign-check-out-yours/)
-- [bath and body works fall scents](https://lifestyle.allwomenstalk.com/products-with-the-best-fall-scents/)
-- [real perfume vs fake](https://perfumes.allwomenstalk.com/real-or-faux-perfume-deciphering-hacks-to-tell-if-its-legit/)
+- [autumn drive perfume](https://perfumes.allwomenstalk.com/match-your-perfume-to-your-fave-fall-things/)
+- [favourite fragrance](https://perfumes.allwomenstalk.com/what-your-favorite-fragrance-says-about-you/)
 - [perfumes for dad](https://perfumes.allwomenstalk.com/best-colognes-to-get-dad-to-have-him-smelling-good-this-fathers-day/)
+- [donna karan liquid cashmere aqua](https://perfumes.allwomenstalk.com/the-greatest-perfumes-to-help-you-smell-your-best-all-summer/)
+- [what perfume is an aphrodisiac](https://perfumes.allwomenstalk.com/aphrodisiac-perfumes-for-women-who-want-to-drive-him-crazy/)
+- [bath and body works fall scents](https://lifestyle.allwomenstalk.com/products-with-the-best-fall-scents/)
+- [perfumes zodiac sign](https://perfumes.allwomenstalk.com/a-signature-perfume-for-every-zodiac-sign-check-out-yours/)
+- [real perfume vs fake](https://perfumes.allwomenstalk.com/real-or-faux-perfume-deciphering-hacks-to-tell-if-its-legit/)
+- [strong long lasting female perfumes](https://perfumes.allwomenstalk.com/best-long-lasting-perfumes-for-her-that-smell-amazing/)
 - [7 Summer Perfumes I Adore ...](https://perfumes.allwomenstalk.com/summer-perfumes-i-adore/)
 - [7 Scents for Summer to Try ...](https://perfumes.allwomenstalk.com/scents-for-summer/)
 

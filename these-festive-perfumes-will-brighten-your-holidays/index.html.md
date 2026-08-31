@@ -180,16 +180,16 @@ What's your favorite holiday tradition? Which of these perfumes top your wish li
 
 ## Related Posts
 
-- [purfume chart](https://perfumes.allwomenstalk.com/this-chart-will-tell-you-which-perfume-fits-your-personality/)
-- [hanae mori butterfly eau de toilette](https://perfumes.allwomenstalk.com/classic-spring-scents-that-beat-all-the-new-stuff/)
-- [clean fragrance hair mist](https://hair.allwomenstalk.com/hair-perfumes-to-keep-you-smelling-sweet-all-day-long/)
 - [types of perfumes and fragrance categories](https://perfumes.allwomenstalk.com/perfumes-101-decoding-the-types-of-fragrance/)
+- [clean fragrance hair mist](https://hair.allwomenstalk.com/hair-perfumes-to-keep-you-smelling-sweet-all-day-long/)
 - [gris dior macy's](https://perfumes.allwomenstalk.com/non-basic-perfumes-youll-want-to-wear-all-week-long/)
-- [best dark feminine perfumes](https://perfumes.allwomenstalk.com/feel-like-a-girly-girl-with-these-feminine-perfumes/)
-- [how to pronounce cologne](https://perfumes.allwomenstalk.com/guys-say-they-love-these-herbaceous-colognes/)
-- [how to find your perfect perfume](https://perfumes.allwomenstalk.com/how-do-you-choose-the-correct-perfume-for-you/)
-- [perfumes that smell like royalty](https://perfumes.allwomenstalk.com/hollywood-inspired-perfumes-thatll-make-you-smell-like-a-star/)
 - [valentines perfumes](https://perfumes.allwomenstalk.com/these-floral-perfumes-will-make-him-swoon-on-valentines-day/)
+- [hanae mori butterfly eau de toilette](https://perfumes.allwomenstalk.com/classic-spring-scents-that-beat-all-the-new-stuff/)
+- [perfumes that smell like royalty](https://perfumes.allwomenstalk.com/hollywood-inspired-perfumes-thatll-make-you-smell-like-a-star/)
+- [best dark feminine perfumes](https://perfumes.allwomenstalk.com/feel-like-a-girly-girl-with-these-feminine-perfumes/)
+- [how to find your perfect perfume](https://perfumes.allwomenstalk.com/how-do-you-choose-the-correct-perfume-for-you/)
+- [how to pronounce cologne](https://perfumes.allwomenstalk.com/guys-say-they-love-these-herbaceous-colognes/)
+- [purfume chart](https://perfumes.allwomenstalk.com/this-chart-will-tell-you-which-perfume-fits-your-personality/)
 - [7 Summer Perfumes I Adore ...](https://perfumes.allwomenstalk.com/summer-perfumes-i-adore/)
 - [8 Sexy Perfumes for Winter ...](https://perfumes.allwomenstalk.com/sexy-perfumes-for-winter/)
 

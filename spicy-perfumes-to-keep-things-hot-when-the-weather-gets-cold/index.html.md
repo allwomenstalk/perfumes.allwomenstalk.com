@@ -179,15 +179,15 @@ Which one tops your list?
 ## Related Posts
 
 - [best christmas fragrances for her](https://perfumes.allwomenstalk.com/these-festive-perfumes-will-brighten-your-holidays/)
-- [best dark feminine perfumes](https://perfumes.allwomenstalk.com/feel-like-a-girly-girl-with-these-feminine-perfumes/)
-- [purfume chart](https://perfumes.allwomenstalk.com/this-chart-will-tell-you-which-perfume-fits-your-personality/)
 - [valentines perfumes](https://perfumes.allwomenstalk.com/these-floral-perfumes-will-make-him-swoon-on-valentines-day/)
-- [how to find your perfect perfume](https://perfumes.allwomenstalk.com/how-do-you-choose-the-correct-perfume-for-you/)
 - [clean fragrance hair mist](https://hair.allwomenstalk.com/hair-perfumes-to-keep-you-smelling-sweet-all-day-long/)
 - [gris dior macy's](https://perfumes.allwomenstalk.com/non-basic-perfumes-youll-want-to-wear-all-week-long/)
 - [perfumes that smell like royalty](https://perfumes.allwomenstalk.com/hollywood-inspired-perfumes-thatll-make-you-smell-like-a-star/)
+- [best dark feminine perfumes](https://perfumes.allwomenstalk.com/feel-like-a-girly-girl-with-these-feminine-perfumes/)
+- [how to find your perfect perfume](https://perfumes.allwomenstalk.com/how-do-you-choose-the-correct-perfume-for-you/)
 - [types of perfumes and fragrance categories](https://perfumes.allwomenstalk.com/perfumes-101-decoding-the-types-of-fragrance/)
 - [hanae mori butterfly eau de toilette](https://perfumes.allwomenstalk.com/classic-spring-scents-that-beat-all-the-new-stuff/)
+- [purfume chart](https://perfumes.allwomenstalk.com/this-chart-will-tell-you-which-perfume-fits-your-personality/)
 - [Cold Weather Shopping ...](https://allwomenstalk.com/cold-weather-shopping/)
 - [Most Fashionable Fragrances for Fall ...](https://allwomenstalk.com/fashionable-fragrances-for-fall/)
 

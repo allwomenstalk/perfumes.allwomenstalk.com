@@ -118,16 +118,16 @@ This is my all-time favorite summer scent... I love it!
 
 ## Related Posts
 
-- [how to smell good while working out](https://running.allwomenstalk.com/heres-how-to-smell-fresh-after-a-run/)
 - [9 Scents That'll Take You on a Trip through Perfum...](https://perfumes.allwomenstalk.com/scents-thatll-take-you-on-a-trip-through-perfume-history/)
-- [what to do with unwanted perfume](https://perfumes.allwomenstalk.com/crafty-ways-to-reuse-your-old-perfume/)
 - [fa perfumes](https://perfumes.allwomenstalk.com/fa-scent-ating-what-your-fragrance-choice-says-about-you/)
 - [What do They do? the ABCs of 19 Awesome Essential ...](https://health.allwomenstalk.com/what-do-they-do-the-abcs-of-awesome-essential-oils/)
-- [Essential Oils to Place on Your Nightstand ...](https://beauty.allwomenstalk.com/essential-oils-to-place-on-your-nightstand/)
-- [will perfume keep mosquitoes away](https://perfumes.allwomenstalk.com/the-delicious-fragrance-thatll-keep-mosquitos-away/)
-- [Here's How to Better Your Mood with These Smells ....](https://health.allwomenstalk.com/heres-how-to-better-your-mood-with-these-smells/)
 - [Woodland Fragrances to Buy before Fall's End ...](https://perfumes.allwomenstalk.com/woodland-fragrances-to-buy-before-falls-end/)
 - [perfume ads video](https://perfumes.allwomenstalk.com/perfume-ads-thatll-make-you-want-to-spritz-on-a-scent/)
+- [what to do with unwanted perfume](https://perfumes.allwomenstalk.com/crafty-ways-to-reuse-your-old-perfume/)
+- [will perfume keep mosquitoes away](https://perfumes.allwomenstalk.com/the-delicious-fragrance-thatll-keep-mosquitos-away/)
+- [Essential Oils to Place on Your Nightstand ...](https://beauty.allwomenstalk.com/essential-oils-to-place-on-your-nightstand/)
+- [Here's How to Better Your Mood with These Smells ....](https://health.allwomenstalk.com/heres-how-to-better-your-mood-with-these-smells/)
+- [how to smell good while working out](https://running.allwomenstalk.com/heres-how-to-smell-fresh-after-a-run/)
 - [8 Fresh Summer Fragrances ...](https://perfumes.allwomenstalk.com/8-fresh-summer-fragrances/)
 - [5 Fun and Flirty Perfumes for Spring ...](https://allwomenstalk.com/5-fun-and-flirty-perfumes-for-spring/)
 
