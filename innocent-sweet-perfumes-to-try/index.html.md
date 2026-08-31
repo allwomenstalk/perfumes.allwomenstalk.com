@@ -68,16 +68,16 @@ So girls, these are just a few of my favorite innocent and sweet perfumes! What 
 
 ## Related Posts
 
-- [tiffany perfume discontinued](https://perfumes.allwomenstalk.com/splendid-perfumes-that-drive-men-crazy/)
-- [best lush perfume](https://perfumes.allwomenstalk.com/all-natural-lush-perfumes/)
-- [ocean by giorgio armani](https://perfumes.allwomenstalk.com/water-inspired-perfumes-to-try/)
-- [what perfume do guys like most](https://perfumes.allwomenstalk.com/top-perfumes-that-men-love/)
-- [punk perfume](https://perfumes.allwomenstalk.com/punk-rock-perfumes-to-try/)
-- [perfumes for mothers](https://perfumes.allwomenstalk.com/perfumes-for-your-mom-for-mothers-day/)
-- [loreal paris riche stylo infinite](https://beauty.allwomenstalk.com/new-perfumes-well-be-rocking-this-season/)
-- [find a similar perfume](https://perfumes.allwomenstalk.com/awesome-perfumes-that-smell-like-soap/)
-- [how to make your own perfume](https://perfumes.allwomenstalk.com/steps-to-making-your-own-perfume/)
 - [perfume that looks like a can](https://perfumes.allwomenstalk.com/deliciously-sweet-perfumes-that-smell-like-candy/)
+- [perfumes for mothers](https://perfumes.allwomenstalk.com/perfumes-for-your-mom-for-mothers-day/)
+- [how to make your own perfume](https://perfumes.allwomenstalk.com/steps-to-making-your-own-perfume/)
+- [tiffany perfume discontinued](https://perfumes.allwomenstalk.com/splendid-perfumes-that-drive-men-crazy/)
+- [what perfume do guys like most](https://perfumes.allwomenstalk.com/top-perfumes-that-men-love/)
+- [best lush perfume](https://perfumes.allwomenstalk.com/all-natural-lush-perfumes/)
+- [punk perfume](https://perfumes.allwomenstalk.com/punk-rock-perfumes-to-try/)
+- [find a similar perfume](https://perfumes.allwomenstalk.com/awesome-perfumes-that-smell-like-soap/)
+- [loreal paris riche stylo infinite](https://beauty.allwomenstalk.com/new-perfumes-well-be-rocking-this-season/)
+- [ocean by giorgio armani](https://perfumes.allwomenstalk.com/water-inspired-perfumes-to-try/)
 - [7 Strange Perfume Scents ...](https://perfumes.allwomenstalk.com/strange-perfume-scents/)
 - [10 Great Perfumes ...](https://allwomenstalk.com/10-great-perfumes/)
 

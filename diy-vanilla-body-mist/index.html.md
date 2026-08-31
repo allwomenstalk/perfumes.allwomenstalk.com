@@ -32,16 +32,16 @@ I hope you like the video!
 
 ## Related Posts
 
-- [dollarama perfume](https://perfumes.allwomenstalk.com/smell-good-without-breaking-the-bank-with-dollar-store-perfumes/)
-- [Amour Fragrance, by Kenzo](https://allwomenstalk.com/amour-fragrance-by-kenzo/)
-- [sensual luxury perfume](https://allwomenstalk.com/luxury-perfumes-to-help-you-exude-sensuality/)
-- [Coach Fragrance Line & LE Straw Basket with Go...](https://allwomenstalk.com/coach-fragrance-line-le-straw-basket-with-goodies/)
 - [best black orchid clone](https://allwomenstalk.com/best-perfume-clones-2022/)
-- [A Scentilicious Deal from Estee Lauder](https://allwomenstalk.com/a-scentilicious-deal-from-estee-lauder/)
+- [Coach Fragrance Line & LE Straw Basket with Go...](https://allwomenstalk.com/coach-fragrance-line-le-straw-basket-with-goodies/)
+- [aquavir](https://perfumes.allwomenstalk.com/perfect-everyday-perfumes-you-will-love/)
+- [decoded perfumes](https://fashion.allwomenstalk.com/decoding-fragrance-families-and-notes/)
+- [sensual luxury perfume](https://allwomenstalk.com/luxury-perfumes-to-help-you-exude-sensuality/)
+- [dollarama perfume](https://perfumes.allwomenstalk.com/smell-good-without-breaking-the-bank-with-dollar-store-perfumes/)
 - [Trying out the Coach Perfume](https://allwomenstalk.com/trying-out-the-coach-perfume/)
 - [Apple Scented Opportunities ...](https://allwomenstalk.com/apple-scented-opportunities/)
-- [decoded perfumes](https://fashion.allwomenstalk.com/decoding-fragrance-families-and-notes/)
-- [aquavir](https://perfumes.allwomenstalk.com/perfect-everyday-perfumes-you-will-love/)
+- [A Scentilicious Deal from Estee Lauder](https://allwomenstalk.com/a-scentilicious-deal-from-estee-lauder/)
+- [Amour Fragrance, by Kenzo](https://allwomenstalk.com/amour-fragrance-by-kenzo/)
 - [8 Quickie DIY All-natural Beauty Products ...](https://beauty.allwomenstalk.com/quickie-diy-all-natural-beauty-products/)
 - [21 All-natural DIY Beauty Products You'll Love ...](https://beauty.allwomenstalk.com/all-natural-diy-beauty-products-youll-love/)
 

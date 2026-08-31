@@ -56,15 +56,15 @@ So girls, these are all of my top perfumes for teenagers that smell amazing and 
 
 ## Related Posts
 
-- [loreal paris riche stylo infinite](https://beauty.allwomenstalk.com/new-perfumes-well-be-rocking-this-season/)
-- [best sweet smelling perfume for ladies](https://perfumes.allwomenstalk.com/innocent-sweet-perfumes-to-try/)
-- [perfumes for mothers](https://perfumes.allwomenstalk.com/perfumes-for-your-mom-for-mothers-day/)
-- [tiffany perfume discontinued](https://perfumes.allwomenstalk.com/splendid-perfumes-that-drive-men-crazy/)
-- [how to make your own perfume](https://perfumes.allwomenstalk.com/steps-to-making-your-own-perfume/)
 - [find a similar perfume](https://perfumes.allwomenstalk.com/awesome-perfumes-that-smell-like-soap/)
-- [ocean by giorgio armani](https://perfumes.allwomenstalk.com/water-inspired-perfumes-to-try/)
-- [perfume that looks like a can](https://perfumes.allwomenstalk.com/deliciously-sweet-perfumes-that-smell-like-candy/)
+- [best sweet smelling perfume for ladies](https://perfumes.allwomenstalk.com/innocent-sweet-perfumes-to-try/)
+- [tiffany perfume discontinued](https://perfumes.allwomenstalk.com/splendid-perfumes-that-drive-men-crazy/)
 - [what perfume do guys like most](https://perfumes.allwomenstalk.com/top-perfumes-that-men-love/)
+- [loreal paris riche stylo infinite](https://beauty.allwomenstalk.com/new-perfumes-well-be-rocking-this-season/)
+- [perfume that looks like a can](https://perfumes.allwomenstalk.com/deliciously-sweet-perfumes-that-smell-like-candy/)
+- [how to make your own perfume](https://perfumes.allwomenstalk.com/steps-to-making-your-own-perfume/)
+- [perfumes for mothers](https://perfumes.allwomenstalk.com/perfumes-for-your-mom-for-mothers-day/)
+- [ocean by giorgio armani](https://perfumes.allwomenstalk.com/water-inspired-perfumes-to-try/)
 - [best lush perfume](https://perfumes.allwomenstalk.com/all-natural-lush-perfumes/)
 - [7 Strange Perfume Scents ...](https://perfumes.allwomenstalk.com/strange-perfume-scents/)
 - [7 Summer Perfumes I Adore ...](https://perfumes.allwomenstalk.com/summer-perfumes-i-adore/)
