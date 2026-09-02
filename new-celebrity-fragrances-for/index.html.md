@@ -3,7 +3,7 @@ title: "7 New Celebrity Fragrances for 2012 ..."
 description: "Madonna - Truth or Dare; Intimately Beckham; Katy Perry – Purr; Rihanna Reb'l Fleur; Beyonce, Pulse Summer Edition; More ..."
 url: "https://perfumes.allwomenstalk.com/new-celebrity-fragrances-for/"
 category: "perfumes"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # 7 New Celebrity Fragrances for 2012 ...
@@ -68,16 +68,16 @@ Top Image Source: [pinterest.com](https://www.pinterest.com/pin/1147017402045788
 
 ## Related Posts
 
-- [essential oils to reduce stress](https://lifestyle.allwomenstalk.com/best-essential-oils-for-a-stress-free-life/)
-- [classic fudge cake shampoo](https://beauty.allwomenstalk.com/beauty-products-that-smell-amazing/)
-- [jessica mclintock perfume](https://perfumes.allwomenstalk.com/perfumes-to-try-in/)
-- [spicy oriental perfumes](https://perfumes.allwomenstalk.com/hot-spicy-perfumes-to-test-out/)
 - [tiffany perfume discontinued](https://perfumes.allwomenstalk.com/splendid-perfumes-that-drive-men-crazy/)
-- [celebrity fragrance](https://perfumes.allwomenstalk.com/best-celebrity-perfumes-youve-got-to-try/)
-- [best cheap date night fragrances](https://perfumes.allwomenstalk.com/best-date-night-perfumes/)
+- [essential oils to reduce stress](https://lifestyle.allwomenstalk.com/best-essential-oils-for-a-stress-free-life/)
+- [spicy oriental perfumes](https://perfumes.allwomenstalk.com/hot-spicy-perfumes-to-test-out/)
 - [what perfume do guys like most](https://perfumes.allwomenstalk.com/top-perfumes-that-men-love/)
 - [juicy couture perfumes list](https://perfumes.allwomenstalk.com/awesome-perfumes-for-teenagers/)
+- [best cheap date night fragrances](https://perfumes.allwomenstalk.com/best-date-night-perfumes/)
 - [best sweet smelling perfume for ladies](https://perfumes.allwomenstalk.com/innocent-sweet-perfumes-to-try/)
+- [celebrity fragrance](https://perfumes.allwomenstalk.com/best-celebrity-perfumes-youve-got-to-try/)
+- [jessica mclintock perfume](https://perfumes.allwomenstalk.com/perfumes-to-try-in/)
+- [classic fudge cake shampoo](https://beauty.allwomenstalk.com/beauty-products-that-smell-amazing/)
 - [7 Scintillating New Scents for Spring ...](https://perfumes.allwomenstalk.com/7-scintillating-new-scents-for-spring/)
 - [7 Strange Perfume Scents ...](https://perfumes.allwomenstalk.com/strange-perfume-scents/)
 

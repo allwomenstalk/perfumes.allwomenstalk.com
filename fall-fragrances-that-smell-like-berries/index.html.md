@@ -3,7 +3,7 @@ title: "7 Fall Fragrances That Smell like Berries ..."
 description: "Marc Jacobs Dot; Hanae Mori Butterfly; Philosophy Falling in Love; Juicy Couture Viva La Juicy so Intense; Thierry Mugler Angel; More ..."
 url: "https://perfumes.allwomenstalk.com/fall-fragrances-that-smell-like-berries/"
 category: "perfumes"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # 7 Fall Fragrances That Smell like Berries ...
@@ -63,16 +63,16 @@ Which of these berry perfumes will you wear this fall? Or do you have another fa
 
 ## Related Posts
 
-- [unisex fragrance 1994](https://perfumes.allwomenstalk.com/unisex-fragrances-youll-both-love/)
 - [is stronger with you intensely good for school](https://perfumes.allwomenstalk.com/the-sweetest-scents-you-can-wear-to-school/)
-- [natural vegan perfume](https://perfumes.allwomenstalk.com/the-ultimate-vegan-perfumes-that-smell-like-heaven/)
 - [parfum d'intérieur lovely elegance](https://perfumes.allwomenstalk.com/perfumes-that-your-favorite-celebs-love-to-wear/)
-- [lavalin deodorant](https://skincare.allwomenstalk.com/natural-deodorants-that-actually-work/)
-- [berries weekend perfume](https://perfumes.allwomenstalk.com/sexy-scents-to-buy-your-boyfriend/)
 - [etat libre d'orange sephora](https://perfumes.allwomenstalk.com/you-need-these-perfumes-for-fall/)
-- [best post workout fragrances](https://perfumes.allwomenstalk.com/the-best-perfume-to-wear-after-exercising/)
-- [perfumes that smell like prada candy](https://perfumes.allwomenstalk.com/perfumes-that-smell-like-your-favorite-candy/)
+- [unisex fragrance 1994](https://perfumes.allwomenstalk.com/unisex-fragrances-youll-both-love/)
+- [natural vegan perfume](https://perfumes.allwomenstalk.com/the-ultimate-vegan-perfumes-that-smell-like-heaven/)
 - [best perfume for first night](https://perfumes.allwomenstalk.com/perfumes-perfect-for-a-first-date-you-must-try/)
+- [berries weekend perfume](https://perfumes.allwomenstalk.com/sexy-scents-to-buy-your-boyfriend/)
+- [lavalin deodorant](https://skincare.allwomenstalk.com/natural-deodorants-that-actually-work/)
+- [perfumes that smell like prada candy](https://perfumes.allwomenstalk.com/perfumes-that-smell-like-your-favorite-candy/)
+- [best post workout fragrances](https://perfumes.allwomenstalk.com/the-best-perfume-to-wear-after-exercising/)
 - [7 Scintillating New Scents for Spring ...](https://perfumes.allwomenstalk.com/7-scintillating-new-scents-for-spring/)
 - [7 Strange Perfume Scents ...](https://perfumes.allwomenstalk.com/strange-perfume-scents/)
 

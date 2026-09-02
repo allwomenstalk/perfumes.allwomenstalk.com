@@ -3,7 +3,7 @@ title: "3 Ingredient DIY Solid Perfume ..."
 description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
 url: "https://perfumes.allwomenstalk.com/ingredient-diy-solid-perfume/"
 category: "perfumes"
-last_updated: "2026-08-31"
+last_updated: "2026-09-02"
 ---
 
 # 3 Ingredient DIY Solid Perfume ...
@@ -22,16 +22,16 @@ Good luck!
 
 ## Related Posts
 
-- [decoded perfumes](https://fashion.allwomenstalk.com/decoding-fragrance-families-and-notes/)
-- [best black orchid clone](https://allwomenstalk.com/best-perfume-clones-2022/)
-- [Coach Fragrance Line & LE Straw Basket with Go...](https://allwomenstalk.com/coach-fragrance-line-le-straw-basket-with-goodies/)
-- [Amour Fragrance, by Kenzo](https://allwomenstalk.com/amour-fragrance-by-kenzo/)
-- [raspberry perfume](https://perfumes.allwomenstalk.com/diy-wild-raspberry-rose-infusion-perfume/)
-- [Trying out the Coach Perfume](https://allwomenstalk.com/trying-out-the-coach-perfume/)
-- [aquavir](https://perfumes.allwomenstalk.com/perfect-everyday-perfumes-you-will-love/)
-- [sensual luxury perfume](https://allwomenstalk.com/luxury-perfumes-to-help-you-exude-sensuality/)
-- [dollarama perfume](https://perfumes.allwomenstalk.com/smell-good-without-breaking-the-bank-with-dollar-store-perfumes/)
 - [diy body mist](https://perfumes.allwomenstalk.com/diy-vanilla-body-mist/)
+- [Coach Fragrance Line & LE Straw Basket with Go...](https://allwomenstalk.com/coach-fragrance-line-le-straw-basket-with-goodies/)
+- [decoded perfumes](https://fashion.allwomenstalk.com/decoding-fragrance-families-and-notes/)
+- [raspberry perfume](https://perfumes.allwomenstalk.com/diy-wild-raspberry-rose-infusion-perfume/)
+- [aquavir](https://perfumes.allwomenstalk.com/perfect-everyday-perfumes-you-will-love/)
+- [dollarama perfume](https://perfumes.allwomenstalk.com/smell-good-without-breaking-the-bank-with-dollar-store-perfumes/)
+- [best black orchid clone](https://allwomenstalk.com/best-perfume-clones-2022/)
+- [Amour Fragrance, by Kenzo](https://allwomenstalk.com/amour-fragrance-by-kenzo/)
+- [Trying out the Coach Perfume](https://allwomenstalk.com/trying-out-the-coach-perfume/)
+- [sensual luxury perfume](https://allwomenstalk.com/luxury-perfumes-to-help-you-exude-sensuality/)
 - [Fragrance Tidbits ...](https://allwomenstalk.com/fragrance-tidbits-2/)
 - [A Different Kind of Scent: Organic & Natural P...](https://allwomenstalk.com/a-different-kind-of-scent-organic-natural-perfumes/)
 
