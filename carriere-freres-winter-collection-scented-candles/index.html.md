@@ -1,9 +1,9 @@
 ---
 title: "Carriere Freres Winter Collection - 3 Divine Scented Candles that Celebrate The New Season"
-description: "Stay ahead, stay chic. Trusted guides on beauty, wellness, fashion, and everything that defines today's empowered woman."
+description: "Carriere Freres Winter Collection - 3 Divine Scented Candles that Celebrate The New Season … There is a particular poetry to winter - a serene hush that…"
 url: "https://perfumes.allwomenstalk.com/carriere-freres-winter-collection-scented-candles/"
 category: "perfumes"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # Carriere Freres Winter Collection \- 3 Divine Scented Candles that Celebrate The New Season

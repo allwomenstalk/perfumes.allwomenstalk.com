@@ -1,9 +1,9 @@
 ---
 title: "55 Gorgeous Vintage Perfume Bottles You'll Lust after ..."
-description: "Green Butterfly; Vintage Perfume Bottle; 19th Century Bottle; ‘Sirenes’; Swan; More ..."
+description: "Green Butterfly; Vintage Perfume Bottle; 19th Century Bottle; ‘Sirenes’; Swan"
 url: "https://perfumes.allwomenstalk.com/gorgeous-vintage-perfume-bottles-youll-lust-after/"
 category: "perfumes"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # 55 Gorgeous Vintage Perfume Bottles You'll Lust after ...
@@ -438,16 +438,16 @@ I'm off to research how to start a collection ... if only! Do you love vintage p
 
 ## Related Posts
 
-- [best body lotion scents](https://skincare.allwomenstalk.com/sensuous-fall-inspired-scented-lotions/)
+- [nest fragrances gift set](https://perfumes.allwomenstalk.com/fragrance-gift-sets-anyone-would-love-to-receive/)
+- [chess perfume](https://perfumes.allwomenstalk.com/best-ever-tips-for-wearing-perfume/)
+- [virtual perfume](https://apps.allwomenstalk.com/fragrant-apps-for-perfume-lovers/)
+- [perfume for introverts](https://perfumes.allwomenstalk.com/perfumes-based-on-personality-types-that-make-great-gifts/)
 - [aftershave gift sets](https://perfumes.allwomenstalk.com/after-shave-gift-sets-to-make-your-men-smell-fab/)
 - [da bombs bath bombs](https://beauty.allwomenstalk.com/bath-bombs-that-are-da-bomb/)
 - [zen scented candles](https://lifestyle.allwomenstalk.com/find-your-zen-with-falls-best-scented-candles/)
-- [perfume for introverts](https://perfumes.allwomenstalk.com/perfumes-based-on-personality-types-that-make-great-gifts/)
-- [virtual perfume](https://apps.allwomenstalk.com/fragrant-apps-for-perfume-lovers/)
-- [nest fragrances gift set](https://perfumes.allwomenstalk.com/fragrance-gift-sets-anyone-would-love-to-receive/)
-- [perfume layering with bath and body works](https://perfumes.allwomenstalk.com/ways-to-layer-your-fragrance/)
+- [best body lotion scents](https://skincare.allwomenstalk.com/sensuous-fall-inspired-scented-lotions/)
 - [how to choose a perfume that suits you](https://perfumes.allwomenstalk.com/tips-for-choosing-a-perfume-thats-right-for-you/)
-- [chess perfume](https://perfumes.allwomenstalk.com/best-ever-tips-for-wearing-perfume/)
+- [perfume layering with bath and body works](https://perfumes.allwomenstalk.com/ways-to-layer-your-fragrance/)
 - [7 Summer Perfumes I Adore ...](https://perfumes.allwomenstalk.com/summer-perfumes-i-adore/)
 - [7 Simply Enchanting Classic French Perfumes ...](https://perfumes.allwomenstalk.com/classic-french-perfumes/)
 

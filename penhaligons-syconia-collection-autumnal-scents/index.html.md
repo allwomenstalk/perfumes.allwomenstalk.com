@@ -1,9 +1,9 @@
 ---
 title: "What Happens When Autumn Scents Meet Penhaligon's Syconia..."
-description: "The Essence of Autumn in a Candle; A Journey to Nature’s Heart; Scented Comforts for Body and Soul; Design that Reflects Nature; A Sanctuary for the Senses; More ..."
+description: "The Essence of Autumn in a Candle; A Journey to Nature’s Heart; Scented Comforts for Body and Soul; Design that Reflects Nature; A Sanctuary for the Senses"
 url: "https://perfumes.allwomenstalk.com/penhaligons-syconia-collection-autumnal-scents/"
 category: "perfumes"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # What Happens When Autumn Scents Meet Penhaligon's Syconia...

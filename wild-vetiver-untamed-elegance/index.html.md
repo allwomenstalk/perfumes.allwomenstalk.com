@@ -1,9 +1,9 @@
 ---
 title: "The Unexpected Allure of Wild Vetiver by The House of Creed..."
-description: "The Timeless Appeal of Creed; A Symphony of Ingredients; Behind the Garden Gates; Elegance with an Untamed Twist; Experience the Vibrant Tension; More ..."
+description: "The Timeless Appeal of Creed; A Symphony of Ingredients; Behind the Garden Gates; Elegance with an Untamed Twist; Experience the Vibrant Tension"
 url: "https://perfumes.allwomenstalk.com/wild-vetiver-untamed-elegance/"
 category: "perfumes"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # The Unexpected Allure of Wild Vetiver by The House of Creed...

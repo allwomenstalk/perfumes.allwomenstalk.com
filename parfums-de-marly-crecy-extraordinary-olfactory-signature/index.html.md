@@ -1,9 +1,9 @@
 ---
 title: "Parfums de Marly’s Crécy: An Extraordinary Olfactory Signature Inspired by the Art of French Refinement"
-description: "The Olfactory Architecture: A Study in Contrasts; Iris Butter: The Luxury of an Extraordinary Ingredient; The Château de Marly: A Legacy of French Art de Vivre; Yvan Jacqueline: The Power and Magic of the Invisible; Les Extraits: An Expression of Exceptional Craftsmanship; More ..."
+description: "The Olfactory Architecture: A Study in Contrasts; Iris Butter: The Luxury of an Extraordinary Ingredient"
 url: "https://perfumes.allwomenstalk.com/parfums-de-marly-crecy-extraordinary-olfactory-signature/"
 category: "perfumes"
-last_updated: "2026-11-05"
+last_updated: "2026-11-09"
 ---
 
 # Parfums de Marly’s Crécy: An Extraordinary Olfactory Signature Inspired by the Art of French Refinement

@@ -1,9 +1,9 @@
 ---
 title: "Why Penhaligon's Maduro Candle is the Talk of the Town..."
-description: "A Beloved Scent for Modern Rituals; Dressed in William's Green; Elevating Home Ambiance; More ..."
+description: "A Beloved Scent for Modern Rituals; Dressed in William's Green; Elevating Home Ambiance"
 url: "https://perfumes.allwomenstalk.com/discover-penhaligon-s-reimagined-maduro-candle-a-sensory-delight/"
 category: "perfumes"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # Why Penhaligon's Maduro Candle is the Talk of the Town...

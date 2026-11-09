@@ -1,9 +1,9 @@
 ---
 title: "Sol de Janeiro’s Cheirosa 39 Perfume Mist Makes a Glorious Comeback …"
-description: "A Fragrance with History - and Heart; The Notes: A Tropical Gourmand That Feels Like Summer; A Fan-Fueled Revival; Wear It Like a Memory; Summer’s Signature Scent; More ..."
+description: "A Fragrance with History - and Heart; The Notes: A Tropical Gourmand That Feels Like Summer; A Fan-Fueled Revival; Wear It Like a Memory"
 url: "https://perfumes.allwomenstalk.com/sol-de-janeiro-cheirosa-39-perfume-mist-returns/"
 category: "perfumes"
-last_updated: "2026-10-22"
+last_updated: "2026-11-09"
 ---
 
 # Sol de Janeiro’s Cheirosa 39 Perfume Mist Makes a Glorious Comeback …
